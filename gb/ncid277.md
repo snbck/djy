@@ -2,7 +2,7 @@
 <tr><td><h3><a href="https://github.com/liczai2340/djy/blob/master/gb/19/12/5/n11701864.md#1" target="_blank">【翻墙必看】陆民众喊时代革命 中共噩梦来了</a><br></h3><a href="https://github.com/liczai2340/djy/blob/master/gb/19/12/5/n11701864.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/019-12-023.30-320x200.jpg" align ="left"></a>大纪元每天为读者梳理翻墙必看的文章：
 
 1.【新闻看点】接连受重击 北京最大噩梦要来了
-最近中共接连遭受重击，国际社会几乎形成了联动，纷纷针对中共出台各项.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月05日 9:00 PM					</td></tr>
+最近中共接连遭受重击，国际社会几乎形成了联动，纷纷针对中共出台各项.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月05日 9:40 PM					</td></tr>
 <tr><td><h3><a href="https://github.com/liczai2340/djy/blob/master/gb/19/12/5/n11701957.md#1" target="_blank">【内幕】华为打压多名员工 或涉及核心秘密</a><br></h3><a href="https://github.com/liczai2340/djy/blob/master/gb/19/12/5/n11701957.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/1905241928522384-150x120.jpg" align ="left"></a>华为李洪元事件后，再有知情人爆料，其被抓可能是因知晓华为违反美国禁运令的核心秘密。该知情人表示，还有其他员工被抓或被失踪至今。
 李洪元事件或涉违反禁运核心秘密
 中国公益机构“长沙富能”联合创办人杨占青，因曾与部分华为离职员工在一个微信群组，故而了解一些华为事件的内幕。
