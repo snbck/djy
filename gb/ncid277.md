@@ -18,7 +18,7 @@
 中国公益机构“长沙富能”联合创办人杨占青，因曾与部分华为离职员工在一个微信群组，故而了解一些华为事件的内幕。
 
 他告诉大纪元，李洪元的罪名从“泄露商业机密”转为涉嫌“敲诈勒索”，很有可能因为其.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月05日 8:40 PM							</td></tr>
-<tr><td><h3><a href="https://github.com/liczai2340/djy/blob/master/gb/19/12/5/n11702852.md#1" target="_blank">新疆兵团退休党委书记、政委晏忠诚被查</a><br></h3><a href="https://github.com/liczai2340/djy/blob/master/gb/19/12/5/n11702852.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/1511012105372382-600x400-1-150x120.jpg" align ="left"></a>12月5日，中共新疆生产建设兵团第十师183团前党委书记、政委晏忠诚被调查。
+<tr><td><h3><a href="https://github.com/liczai2340/djy/blob/master/gb/19/12/5/n11702852.md#1" target="_blank">新疆兵团下辖183团退休党委书记晏忠诚被查</a><br></h3><a href="https://github.com/liczai2340/djy/blob/master/gb/19/12/5/n11702852.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/1511012105372382-600x400-1-150x120.jpg" align ="left"></a>12月5日，中共新疆生产建设兵团第十师183团前党委书记、政委晏忠诚被调查。
 
 中共新疆生产建设兵团纪监委5日消息：中共新疆生产建设兵团第十师183团前党委书记、政委晏忠诚涉嫌严重“违纪违法”，正被审查和监察调查。
 
