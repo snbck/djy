@@ -487,9 +487,6 @@ La CasaÈÊ°®¶ùÍ¯Ö®¼ÒµÄº¢×Ó¶àÀ´×ÔµÍÊÕÈëµÄ¼ÒÍ¥£¬µ±ÊýÊ®Î»Ð¡ÅóÓÑÄÃµ½Ã«Ìº¡¢Íæ¾ß¡¢ÌÇ¹ûµ
 
 ²¨ÍþÊÐÕþ¸®Ëµ£¬×î³õÊÕµ½×¡»§µÄ±¨¸æ£¬ÊÇÔÚ¸Ð¶÷.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ06ÈÕ 4:17 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/6/n11704992.md#1" target="_blank">ÃñÖÚµ³²Ì±ÚÈç»ÆžsÓ¨ Â½ÐøÇë´Ç±±ÊÐ¸®Ö°</a><br></h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/6/n11704992.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/884b6d1dca776092218aa41f172fed6c-150x120.jpg" align ="left"></a>Ì¨ÍåÃñÖÚµ³²»·ÖÇøÁ¢Î¯Ãûµ¥µÚ5Ãû²Ì±ÚÈçÓëµÚ13Ãû»ÆžsÓ¨£¬·Ö±ðÊÇÌ¨±±ÊÐÕþ¸®¹ËÎÊ¼°¸±·¢ÑÔÈË£¬Íâ½ç¹Ø×¢ºÎÊ±´ÇÖ°Í¶ÈëÑ¡Õ½¡£²Ì±ÚÈç½ñÌì±íÊ¾ÒÑ¾­Ìá´Ç³Ê£¬»ÆžsÓ¨½ñÌìÒ²»áÅÜÀëÖ°³ÌÐò¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ06ÈÕ 4:09 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/6/n11704969.md#1" target="_blank">Ê¥µØÑÇ¸çÁ÷¸ÐÔö¶à ±ÈÉÏ¼¾·­±¶</a><br></h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/6/n11704969.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/flu-SD-County-1-150x120.jpg" align ="left"></a>¾Ý¼ÓÖÝÊ¥µØÑÇ¸çÏØÃñ½¡²¿12ÔÂ4ÈÕ·¢²¼µÄ×îÐÂÃ¿ÖÜÁ÷¸Ð¹«¸æ£¬±¾Á÷¸Ð¼¾ÖÁ½ñÒÑÓÐ6ÈËËÀÍö£¬±ÈÈ¥ÄêÍ¬ÆÚ¶à4ÈË¡£±»¼ÍÂ¼µÄÁ÷¸Ð²¡Àý933£¬±ÈÈ¥ÄêÍ¬ÆÚµÄ455Àý¼¸ºõ·­±¶¡£×î½üÒ»ÖÜ£¨11ÔÂ24ÈÕ-30ÈÕ£©µÄÁ÷¸Ð²¡ÀýÎª203Àý£¬±ÈÉÏÒ»ÖÜµÄ116ÀýÒ²¼¸ºõ·­±¶¡£
-
-ÏØÃñ½¡²¿Ëµ£¬×î½üµÄÒ»ÀýÁ÷¸ÐËÀÍö°¸ÀýÊÇÒ»Î»ÔÚ11ÔÂ23ÈÕÀëÊÀµÄ59Ëê¸¾Å®£¬Ëý.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ06ÈÕ 3:56 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/8/n11708733.md#1" target="_blank">Ç°½ðÃÅÏØ³¤»úÒªÉæµØÏÂ»ã¶Ò ½ð¼ì£ºÎÞ¹ØÑ¡¾Ù</a><br></h3>ÓÐ¹ØÃ½Ìå±¨µ¼¡°Ñ¡Ç°4ÒÚîÒ¿îµØÏÂ»ã¶Ò½ø½ðÃÅ¡¢Ç°ÏØ³¤³Â¸£º£»úÒªÃØÊé±»ÊÕÑº¡±Ò»ÊÂ£¬½ðÃÅµØ¼ìÊð8ÈÕ±íÊ¾£¬´Ë°¸ÊÇÒÔÎ¥·´¡¶ÒøÐÐ·¨¡·Õì°ì£¬¶ø·ÇÑ¡¾ÙÏà¹Ø·¨Áî£¬ÇÒ³Â¸£º£µÇ¼Ç²ÎÑ¡µÚ10½ìÁ¢Î¯µÄÊ±¼äÊÇÔÚ¿ªÊ¼Õì°ìºó£»³Â¾º°ìÒ²±íÊ¾£¬ÊÇÓÐÐÄÈËÊ¿ÔÚÑ¡Ç°¿ÌÒâÇú½â£¬ÒâÍ¼Ó°ÏìÑ¡Çé¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ08ÈÕ 9:22 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/8/n11708547.md#1" target="_blank">µ³ÄÚÓõÎâË¹»³ÍË²»·ÖÇø Îâ¶ØÒå£º²»ÄÜËæ±ã°Îµô</a><br></h3>ÍË½«ÎâË¹»³ÁÐ¹úÃñµ³²»·ÖÇøÁ¢Î¯Ãûµ¥ÈÇÒé£¬Íâ´«ÓÐÀ¶Î¯ÈÏÎª£¬ÎâË¹»³ÐÎÏóÓ°ÏìÁ¢Î¯Ñ¡Çé£¬ÒªÇóÎâ×Ô¶¯ÍË³ö¡£¹úÃñµ³Ö÷Ï¯Îâ¶ØÒå8ÈÕ±íÊ¾£¬²»·ÖÇøÃûµ¥¾­¹ýÌáÃûÉó²éÐ¡×é¡¢ÖÐ³£»á2´Î»áÒé¡¢È«ÌåÖÐÑëÎ¯Ô±»áÒé£¬½øÐÐÕýÊ½Í¶Æ±²úÉúµÄÃûµ¥£¬²»ÄÜËæ±ã°Îµô£¬ËûÒ²ÈÏÎªµ³ÄÚ²»Ó¦¸ÃÈ¥Ôð±¸ÎâË¹»³¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ08ÈÕ 8:36 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/8/n11708570.md#1" target="_blank">ÆøÎÂ½µÐ¡ÐÄ¸ÐÃ° ¹«·ÑÁ÷¸ÐÒßÃçµÚ¶þ½×¶Î¿ª´ò</a><br></h3>¹«·ÑÁ÷¸ÐÒßÃçµÚ¶þ½×¶ÎÓÚ8ÈÕ¿ªÊ¼Ê©´ò£¬Ì¨±±¡¢ÐÂ±±¡¢Ì¨ÖÐ¡¢Ì¨ÄÏÓë»¨¶«µÈµØÎÀÉúµ¥Î»8ÈÕ·Ö±ð³öÏÖÐí¶à½ÓÖÖÈË³±£¬½ÓÖÖ¶ÔÏóÎªÁùÊ®ÎåËêÒÔÉÏ³¤Õß¼°Áù¸öÔÂÒÔÉÏÖÁ¹úÐ¡ÈëÑ§Ç°Ó×¶ù£¬Äêµ×ÊÇÁ÷¸Ð¼°·ÎÑ×Á´Çò¾ú¸ÐÈ¾ºôÎüµÀ¼²²¡ºÃ·¢¼¾½Ú£¬Ò½Ê¦ÌáÐÑ£¬³öÏÖÀàÁ÷¸ÐÖ¢×´£¬Ó¦´÷¿ÚÕÖ¼õÉÙÍâ³ö£¬±ÜÃâ²¡¶¾´«²¥£»´ËÍâ£¬½üÆÚÌìÆøÖè½µ£¬Ò½Ê¦ÌáÐÑ£¬¸ßÑªÌÇ¡¢¸ßÑªÖ¬»¼Õß£¬ÒªÌØ±ð×¢.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ08ÈÕ 8:16 PM			</td></tr>
@@ -710,6 +707,4 @@ La CasaÈÊ°®¶ùÍ¯Ö®¼ÒµÄº¢×Ó¶àÀ´×ÔµÍÊÕÈëµÄ¼ÒÍ¥£¬µ±ÊýÊ®Î»Ð¡ÅóÓÑÄÃµ½Ã«Ìº¡¢Íæ¾ß¡¢ÌÇ¹ûµ
 ²Ý²ÝÌî¿Ó¼±´Ò´Ò¡£
 ÈýÈËÁ½³µËÙÃ÷Âñ£¬
 Ò»ÌõºÚÂ·ÕÕÍ¨ÐÐ¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ06ÈÕ 4:10 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/6/n11704994.md#1" target="_blank">Ç­¸ßËÙ37³µÁ¬»·×²23ÈËÉË ÓÐÈËÂ­ÄÔËðÉË</a><br></h3>12ÔÂ6ÈÕÉÏÎç8Ê±20·Ö×óÓÒ£¬×ñÈØ¸ßËÙ¹«Â·£¨¹óÖÝ×ñÒåÖÁËÄ´¨³É¶¼£©ÔÚ×ñÒåÏ°Ë®ÏØÂ·¶Î£¬ÒÉÒò´óÎíºÍÂ·Ãæ½á±ùÊª»¬µÈÔ­Òò£¬µ¼ÖÂ37³µÁ¬»·×·×²£¬ÖÁÉÙ23ÈËÊÜÉËËÍÔº£¬ÓÐÈËÖØ¶ÈÂ­ÄÔËðÉË¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ06ÈÕ 4:01 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/6/n11704965.md#1" target="_blank">Äþ¾²£º¡¶»¨ÎªÃ½¡·±»ÖÐ¹²½û²¥Ê®ÎåÄêÖ»ÎªÒùÂÒ»ªÏÄ</a><br></h3>ÔÚÎÒÑÛÀï£¬¡¶»¨ÎªÃ½¡·²»¹ýÊÇÒ»Ì¨ÃÀÀöµÄÃñË×Ð¡Ï²¾ç£¬½ÚÈÕ»é¼ÞµÈÃñË×»î¶¯Ê±£¬ÇÃ´òÆðÀ´¿ªÐÄÏûÇ²µÄÈÈÄÖ¾ç£¬ÄÚÈÝ¼È²»Ç£ÉæÉñ·ð£¬¸ü²»´¥¼°ÕþÖÎ£¬ÕâÃ´Ò»³ö±íÃæ¿´À´Éî¶ÈÓÐÏÞµÄÐ¡¾ç£¬ÔÚ1963Äê±»ÅÄ³ÉÁËµçÓ°£¬ÒòÎªÑÝÔ±¸ö¸ö¶¼ÊÇÑÝ¼¼Ò»Á÷µÄÒÕÊõ¼Ò£¬µçÓ°ÅÄµÄ·Ç³£ºÃ¿´ºÃÌý£¬¿É¸ù±¾Ã»ÓÐ¹«Ó³¾Í±»Ç¹±ÐÁË£¬Ò»½û¾ÍÊÇÊ®ÎåÄê£¬ÕâÊÇÎªÊ²Ã´ÄØ£¿......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ06ÈÕ 3:57 PM			</td></tr>
 </table><h4>ÊÖ»úÉÏ³¤°´²¢¸´ÖÆÏÂÁÐÁ´½Ó»ò¶þÎ¬Âë·ÖÏí±¾ÎÄÕÂ£º</h4>https://github.com/rywys229/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/rywys229/djy/blob/master/gb/n24hr.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rywys229/djy/blob/master/gb/n24hr.md%231" title="·ÖÏí±¾ÎÄÕÂ"></a><br>Ô­ÎÄµØÖ·£º <a href="http://www.epochtimes.com/gb/n24hr.htm">http://www.epochtimes.com/gb/n24hr.htm</a>    £¨¹úÄÚÐè<a href="https://git.io/JesJV">ÏÂÔØ·­Ç½Èí¼þ</a>²ÅÄÜ·ÃÎÊ£©</p>
