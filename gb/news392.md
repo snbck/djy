@@ -19,10 +19,20 @@
 <tr><td><h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/7/n11706988.md#1" target="_blank">陈思敏：台湾11家银行踩雷中国国储能源的背后</a><br></h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/7/n11706988.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2015/02/150120083250100615-150x120.jpg" align ="left"></a>跨年之际，中国各类债务爆雷不断。12月6日消息证实，中国国储能源子公司上海国储能源在香港发行的4亿美元离岸债违约，而参贷行多达23家银行遍及亚洲金融机构。其中最大苦主要算台湾金融业者，目前11家银行踩雷初估曝险部位合计约新台币51亿元。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月07日 9:41 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/7/n11707147.md#1" target="_blank">程晓容：华为251折射中共司法冤案黑幕</a><br></h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/7/n11707147.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/15dd8865fa144798_ttl7dayQN6_d00e5415efdd629e-150x120.jpg" align ="left"></a>华为“251”是一颗炸弹，把许多人从“中国梦”中惊醒。一个表面上代表民族实力的品牌企业，它的“狼性”折射出其主人的非人化。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月07日 6:36 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/7/n11706681.md#1" target="_blank">隋志：从“隐性谋杀”看中共凶残</a><br></h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/7/n11706681.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/flg-150x120.jpg" align ="left"></a>一九九九年七月二十日，中共与江氏集团发动全面镇压法轮功，采行“肉体上消灭、经济上搞垮、名誉上搞臭”的灭绝政策，成立专责迫害法轮功的黑机关“六一零办公室”，指挥公、检、法、司各层级的官员与警察，无所不用其极，迄今至少有四千三百多名修炼者被迫害致死。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月07日 12:44 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/7/n11706677.md#1" target="_blank">骆克仁：一个男演员之死</a><br></h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/7/n11706677.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/PO_X8303-1-150x120.jpg" align ="left"></a>录制大陆节目《追我吧》意外猝逝的男演员高以翔遗体已运回台湾，停灵于台北第一殡仪馆。除了惋惜、感叹，一个男演员之死，还能让我们重新审视些什么？
-
-旅美多年，鲜少看华人电视节目，但这回我真想“见识”一下，究竟是什么样的“都市夜景追跑竞技秀”能让参演者体力不支？又是什么原因让工作团队毫无危机意识，错失救人的黄金时间，让一.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月07日 11:54 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/7/n11706648.md#1" target="_blank">白马：陆媒的衰弱和新唐人、大纪元的强盛</a><br></h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/7/n11706648.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/photo-600x400-1-150x120.jpg" align ="left"></a>日前，中国大陆的鸡西新闻传媒集团由于一年不发工资，集团联合政府部门动员新闻工作者辞职。200多媒体人在单位门口、街边打出讨薪横幅……......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月07日 11:44 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/9/n11710059.md#1" target="_blank">理悟：中共归宿</a><br></h3>亥猪闹猪瘟，党国头发昏。
+子鼠未值年，鼠疫先进门。
+港选涂地败，特工反惊魂。
+美推双法案，港疆利万民。
+噩耗不断溜，祸事紧相跟。
+四顾无生机，一路进荒坟。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月09日 2:07 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/9/n11709979.md#1" target="_blank">吐为快：共匪在香港秀道德</a><br></h3>特务乱金港，黑警暗珠光
+烟弹弥党恨，水炮射共狂
+傀府养一娥，万家夜凄怆
+时闻被杀坠，冤尸浮海浪
+港铁通陆狱，单衣何酷凉
+漆黑闪电棍，稚子哭爹娘
+勇武抓不尽，和理非转钢
+民意道何在，民主德飘香......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月09日 2:01 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/9/n11709792.md#1" target="_blank">岳横：诡秘角落里的另类“语言”</a><br></h3>中国大陆历经中共七十年的血腥暴政，早就国已不国。国已不国的表现之一，就是从官场到社会的流氓、帮派、黑社会化。人有人言，兽有兽语，黑社会有其特有的“黑话”。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月09日 12:42 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/8/n11708330.md#1" target="_blank">廖祖笙：或为白卷先生习近平</a><br></h3>习近平先生，“法治国家”的法治环境和人权环境，杂草丛生、荒芜鹿戏久矣，这不仅常让国人觉得这是个非人间，而且也严重损害“新政”的执政形象和政绩。“人之生乎地上之无几何也，譬之犹驷驰而过隙也”，若你在任期内不能尽快找到有效的突破口，那么御任之时，你或为白卷先生习近平，国人所能记住你的好，无非也就两件事，一是解救了海量的被劳.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月08日 5:07 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rywys229/djy/blob/master/gb/19/12/8/n11708236.md#1" target="_blank">文武：向心孟晚舟看似倒楣 实则幸运</a><br></h3>孟晚舟在加拿大被抓，至今已有一年的时间了，向心是最近被台湾抓住的。从一般常识而言，谁被抓了都是件倒楣的事情，可是在今天这个特殊的历史时期，对于一些特殊的人来说，被抓了，不仅不是倒楣的事情反而是件幸运的事情。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月08日 4:57 PM			</td></tr>
