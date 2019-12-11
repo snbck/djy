@@ -25,7 +25,7 @@
 货倾美国金满钵，命似港人纸一张；
 姓党迷住智慧眼，谤神断却回天望；
 初心偏离普世远，使命绑陪红魔葬。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月11日 1:39 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/iqwytd266/djy/blob/master/gb/19/12/11/n11714881.md#1" target="_blank">李桦：中国人权、民主、法治倒退 致各阶级恐慌</a><br></h3>近些年来，在一党执政中共所领导的中国给我最深刻的印象应该就是“倒退”这两个字，中国正面临着有史以来最大的倒退，更可怕的是广大人民还没有意识到，还被蒙在鼓里。
+<tr><td><h3><a href="https://github.com/iqwytd266/djy/blob/master/gb/19/12/11/n11714881.md#1" target="_blank">李桦：中国人权、民主、法治倒退 致各阶层恐慌</a><br></h3>近些年来，在一党执政中共所领导的中国给我最深刻的印象应该就是“倒退”这两个字，中国正面临着有史以来最大的倒退，更可怕的是广大人民还没有意识到，还被蒙在鼓里。
 
 第一：中国底层人民的恐慌：说起中国底层人民首先我想到的是农民，中国有近6亿的农村人口。他们生活在基础条件非常差的农村，2018年统计，中国农民平均净收入为2.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月11日 11:54 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/iqwytd266/djy/blob/master/gb/19/12/10/n11712910.md#1" target="_blank">严晓：老朽不死是为贼</a><br></h3>最近重读俄国伟大的思想家赫尔岑的《往事与追思》，我发现，这部写于一百六十多年前的巨著到今天仍然有着难得的现实意义，别的不说，单是贯穿全书的“速死论”，便令我再次拜倒在这位大师面前，惊为神人。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月11日 1:33 AM			</td></tr>
