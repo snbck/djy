@@ -33,7 +33,15 @@
 <tr><td><h3><a href="https://github.com/nexmjc248/djy/blob/master/gb/19/12/10/n11712614.md#1" target="_blank">【名家专栏】美宪法规定总统制定外交政策</a><br></h3><a href="https://github.com/nexmjc248/djy/blob/master/gb/19/12/10/n11712614.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/GettyImages-1187847517-150x120.jpg" align ="left"></a>众议院民主党人对川普总统的弹劾案集中在外交政策而不是内政的过失。这在美国历史上是前所未有的。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月10日 10:42 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/nexmjc248/djy/blob/master/gb/19/12/9/n11709511.md#1" target="_blank">海风：十大理由 中共为何受困于香港</a><br></h3><a href="https://github.com/nexmjc248/djy/blob/master/gb/19/12/9/n11709511.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/photo_2019-08-18_23-05-42-600x400-1-150x120.jpg" align ="left"></a>“今日新疆，明天香港！ ” 这是12.8国际人权日80万香港民众再次上街游行打出的标语。这次游行从下午开始持续到夜晚，示威者用手机灯光点亮了夜空。香港反送中运动从6月9日开始，已即将进入第7个月。香港问题之所以久拖不解，这其中主要原因还是来自中共无视民意。理由如下：......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月10日 5:30 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/nexmjc248/djy/blob/master/gb/19/12/10/n11713112.md#1" target="_blank">程晓容：国际社会应关注最大的人权灾难</a><br></h3><a href="https://github.com/nexmjc248/djy/blob/master/gb/19/12/10/n11713112.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/1912010333492188-150x120.jpg" align ="left"></a>六个月来，许多香港抗议民众切身体会到，法轮功学员所遭受的残酷迫害都是事实，法轮功对中共本质的揭示有先见之明。他们为此感谢法轮功，并且向法轮功的勇气坚持致敬。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月10日 5:16 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/nexmjc248/djy/blob/master/gb/19/12/10/n11712786.md#1" target="_blank">袁斌：在焚书的火焰里 文革正在向我们走来</a><br></h3><a href="https://github.com/nexmjc248/djy/blob/master/gb/19/12/10/n11712786.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2009/10/910050955411497-150x120.jpg" align ="left"></a>10月23日，甘肃庆阳市镇原县人民政府网站新闻中心发布了一则该县图书馆10月份组织开展馆藏出版物清查下架和集中销毁活动的报导。这篇报导的导语说：“为充分发挥图书馆在社会主流意识形态传播的主阵地作用，近期，镇原县图书馆组织对馆藏资源中社会捐赠的非法出版物、宗教类出版物，特别是对含有倾向性的文章书籍、图片书刊和影像资料等内.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月10日 3:22 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/nexmjc248/djy/blob/master/gb/19/12/12/n11717417.md#1" target="_blank">郑纯清：迎接“国际人权日”香港大游行的里程牌意义</a><br></h3>区选大翻盘，乾坤正倒转。
+欲火中明珠，辉光更夺目。
+迎接人权日，灭共再兴师。
+百尺之竿头，驱共登高楼。
+数报八十万，有称超远远。
+八十与百余，神目计明细。
+天在灭红魔，落花无奈何。
+恶党末日近，大势亦瞅准。
+天灭中共旗，格外长志气。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月12日 2:00 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/nexmjc248/djy/blob/master/gb/19/12/11/n11716727.md#1" target="_blank">夏林:北约对中共的警醒</a><br></h3>中共还没从王立强出逃、香港区选泛民大胜、美国通过香港人权民主法案等一系列大棒捶打中清醒过来，北约峰会又给它两拳重击。
 
 北约成立的时间很凑巧，是1949年，与中共建政同年。可能天意自有安排，但当初成立时，是为了对付以苏联为首的华沙条约组织，现在由跨越欧洲和北美的29个国家组成，北约军事开支占世界国防开支的70%。北.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月12日 4:45 AM			</td></tr>
