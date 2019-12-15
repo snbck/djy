@@ -28,15 +28,10 @@
 箱箱赂贿为仕程，件件加倍往回挣
 下级拥捧上级稳，纪委原是半眼睁......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月15日 10:19 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/alzmt2820/djy/blob/master/gb/19/12/15/n11723337.md#1" target="_blank">陈达：《时代》二零一九年度人物评选感言</a><br></h3>二零一九人物选，
-
 港众得票遥领先。
-
 风头盖过中共头，
-
 再唤良知向明天。
-
 不料杂志社老板，
-
 戏弄读者逗你玩。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月15日 10:09 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/alzmt2820/djy/blob/master/gb/19/12/14/n11723228.md#1" target="_blank">海网：正告张晓明们</a><br></h3>张晓明，明嚣张。捅大漏，暗恐慌。
 怕问责，胡妄想。罪掩罪，再乱港。
