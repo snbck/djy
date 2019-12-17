@@ -618,7 +618,6 @@ Jason .........<br><img align="bottom" src="http://www.epochtimes.com/assets/the
 <tr><td><h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/19/12/15/n11723667.md#1" target="_blank">全台最热闹耶诞舞会 奇美博物馆万人舞动</a><br></h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/19/12/15/n11723667.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/2d2a34065b17daea0a75ae7a75e50992-150x120.jpg" align ="left"></a>奇美博物馆“耶诞周末－化装舞会”14日启动，活动首日吸引约万名民众大玩扮装参加盛会，节目最高潮聚焦于晚间“耶诞大舞会”，不分男女老少聚集在馆前广场翩翩起舞，令人沉醉于西洋古典的浪漫情调中。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月15日 5:48 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/19/12/15/n11723644.md#1" target="_blank">桃园第四届市长杯世界珠心算数学国际公开赛</a><br></h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/19/12/15/n11723644.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/592e4275c59894029cddf693afa5b125-150x120.jpg" align ="left"></a>第四届桃园市长世界珠心算暨数学国际公开邀请赛15日在平镇妇幼馆举行，今年共有7百多位选手参赛，年纪最小的才4岁，最高龄者79岁，来自台湾、日本、韩国、中国大陆、香港、新加坡、泰国、马来西亚、加拿大、澳洲等700名参赛者报名参加，拥有珠心算双10段的大会会长施美铃表示，有很多学童正在学习珠心算，是一门优良技艺，值得我们重.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月15日 5:34 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/9/1/22/n2406277.md#1" target="_blank">汉大臣报杀身之仇 为何等待千年？</a><br></h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/9/1/22/n2406277.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/10/shutterstock_1135790816-150x120.jpg" align ="left"></a>悟达国师的膝盖上突然长了一个人面疮，眉目口齿俱备，每天需以饮食喂它，疮像人一样开口吞啖。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月15日 5:33 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/8/7/6/n2181664.md#1" target="_blank">秦穆公慧眼识珠  公孙支诚心让贤</a><br></h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/8/7/6/n2181664.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2008/07/e514e309a3270b7356c127c2e5fb2d28-150x120.jpg" align ="left"></a>秦穆公是春秋时代秦国早期的国君，有一次，他派人到卫国去买盐。此前，卫国盐商以五张黑色公羊皮的代价，买下百里奚。盐商很信任他，便命他将盐运往秦国。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月15日 5:20 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/19/12/17/n11728654.md#1" target="_blank">加拿大父母移民明年重开 增500个名额</a><br></h3>加拿大移民部宣布，将在2020年重新开放父母与祖父母移民项目，并增加500个名额。
 
 移民部已宣布，父母与祖父母移民项目将在2020年增加500个名额，增至2.1万，最多不会超过2.4万。2021年的名额将保持不变。
@@ -860,11 +859,4 @@ ingeniumcana.........<br><img align="bottom" src="http://www.epochtimes.com/asse
 该消息最早可望在下周公布，不过，这位官员表示，撤军时间还存在变量。
 
 国防官员告诉CNN说，缩编后的美国军事力量将主要集中在针对基地组织和ISIS-K（伊斯兰国在阿富汗的分支）等组织的反恐行动上。美军向阿富汗当地部队.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月15日 6:25 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/19/12/15/n11723710.md#1" target="_blank">汽车维修问与答：热车启动困难</a><br></h3>汽车维修问与答
-
-读者问：您好，我的车是2001年福斯Lupo。因为不懂机油加多少，所以加过多（持续几个礼拜），导致机油喷出冒烟，事后马上找车厂漏掉，重新保养清洁，事后只要踩油门机油灯就会闪烁，引擎温度高，请问可能是什么问题？
-
-&nbsp;
-
-李进答：您好，机油过多一段时间，虽然清洁后仍然无法保证全部的过.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月15日 5:18 PM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/kjeqw2335/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/kjeqw2335/djy/blob/master/gb/n24hr.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kjeqw2335/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/n24hr.htm">http://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
