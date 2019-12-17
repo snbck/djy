@@ -500,13 +500,6 @@ Jason .........<br><img align="bottom" src="http://www.epochtimes.com/assets/the
 <tr><td><h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/19/12/14/n11722829.md#1" target="_blank">四川珙县煤矿发生渗水事故 致4死14人失踪</a><br></h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/19/12/14/n11722829.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/d2d70a1d323385826458f180991ec984-150x120.jpg" align ="left"></a>四川省宜宾市珙县一座煤矿日前发生渗水事故，目前已造成4人遇难，14人失踪。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月15日 1:05 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/19/12/14/n11722767.md#1" target="_blank">中科院迫害法轮功修炼者 多人疑被药物致死</a><br></h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/19/12/14/n11722767.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/IMG_0649-1-150x120.jpg" align ="left"></a>近年来，在中科院高能物理研究所，有多名法轮功学员被迫害离世，被强烈质疑是受到中共药物迫害致死。知情人被迫逃到美国，揭露中共610对法轮功学员实施的阴毒迫害。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月15日 12:58 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/19/12/14/n11722668.md#1" target="_blank">美中第一阶段贸易协议 八大看点一次看懂</a><br></h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/19/12/14/n11722668.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/01/GettyImages-1058995286-150x120.jpg" align ="left"></a>周五（12月13日），美中双方各自宣布，就第一阶段贸易协议的条款达成了共识。协议除了中方购买美国农产品，以及美方削减关税的条款外，还包括其它6个主要看点。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月15日 12:30 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/19/12/14/n11722814.md#1" target="_blank">纪实散文：一夜惊梦（14）</a><br></h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/19/12/14/n11722814.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/15de2688b2e6dc75_ttl7dayZVN_shutterstock_85204393-1-150x120.jpg" align ="left"></a>青的儿子
-
-那日，听到青被抓去劳教，我丝毫不感到震惊，身为坚定的法轮功修炼者没有坐牢，少之又少。像老周一家，眼下已是三进宫，这次，居然连他尚在念高中的儿子都一并劳教，只剩下个十五六岁的女儿自谋生计。
-
-青有一个独生子，生得眉清目秀，学业优良，刚上初一。只是天性寡言，见人低头，比小姑娘还怕羞。
-
-青的妻子小林.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月15日 12:23 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/19/12/16/n11726923.md#1" target="_blank">往返滑雪胜地 今冬有巴士服务</a><br></h3>多伦多市民如果想尝试一下安省公园提供的户外滑雪等活动，又难以成行的话，下个月可以乘巴士去箭头省立公园（Arrowhead Provincial Park）。
 
 冬天出远门不是一件容易的事，如果没有足够的经验，自己开车会挺危险。
