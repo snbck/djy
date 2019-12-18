@@ -704,21 +704,6 @@ Jason .........<br><img align="bottom" src="http://www.epochtimes.com/assets/the
 切尔西在主场0：1不敌伯恩茅斯，收到近5轮联赛的第4场.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月16日 8:13 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/19/12/15/n11724595.md#1" target="_blank">中国楼市销量差库存增 房地产股走衰</a><br></h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/19/12/15/n11724595.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2007/11/711130243151991-150x120.jpg" align ="left"></a>今年以来A股市场的房地产股成为“重灾区”，一些房企到港上市融资也表现不佳。目前中国大陆房地产市场销售依然萧条，同时库存量不断增加。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月16日 8:09 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/19/12/9/n11710300.md#1" target="_blank">天地清明引(138) 东流水－浩然正气3</a><br></h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/19/12/9/n11710300.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/09/4325af0fb8983b64fd5334fb52749c7c-150x120.jpg" align ="left"></a>金海吃了个饱，日上三竿，捧着肚子去寻医馆。跑了十几家，皆言郎中被朝廷征调，前往疫病营诊治病患。无奈之际，忽然想起早年认识的山野郎中，便前往求助。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月16日 8:00 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/19/12/18/n11729906.md#1" target="_blank">云鹤天：中共的心态</a><br></h3>旷日持久贸易战
-
-协议到底签不签
-
-签与不签都是死
-
-需要精打与细算
-
-如果不签今天死
-
-要是签了明天完
-
-那就还是签了吧
-
-能活一天是一天......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月18日 2:48 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/kjeqw2335/djy/blob/master/gb/19/12/18/n11729881.md#1" target="_blank">陈达：习近平夸林郑月娥“恪尽职守”感言</a><br></h3>中共魁首见特首，
 
 恪尽职守口特臭。
