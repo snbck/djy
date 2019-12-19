@@ -28,16 +28,7 @@
 
 目前，对这个协议，众说纷纭，莫衷一是。大多不太看好。我却认为，中美达成这个协议好，好在哪里？......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月17日 10:47 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/nhrnni253/djy/blob/master/gb/19/12/16/n11726911.md#1" target="_blank">洪达：祝贺神韵2020全球巡回演出</a><br></h3><a href="https://github.com/nhrnni253/djy/blob/master/gb/19/12/16/n11726911.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/1901140106381973-600x400-150x120.jpg" align ="left"></a>在圣诞节即将来临之际，神韵艺术团将于十二月二十日展开二零二零年的全球巡回演出季之旅，预计覆盖约20个国家、近160个城市，演出场次七百余，规模为历年之最，逾百万人次观众将有幸欣赏“世界第一秀”的演出，共享丰盛的心灵飨宴。此全球艺文界的盛事佳话，深值庆贺。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月17日 7:48 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/nhrnni253/djy/blob/master/gb/19/12/19/n11732308.md#1" target="_blank">海网：南风吹起势燎原——有感于“光复茂名”模式重演</a><br></h3>征地名修生态园，
-实盖火葬殡仪馆。
-茂名民众反冒名，
-光复香港演再版。
-僵持四日中共软，
-文楼镇宣永不建。
-但偷转移播扬镇，
-手段依旧打与骗。
-名堂换成净化水，
-群起阻拦警强赶。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月19日 3:17 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/nhrnni253/djy/blob/master/gb/19/12/16/n11726663.md#1" target="_blank">周晓辉：高调关注中共盗版仿制 俄补刀不简单</a><br></h3><a href="https://github.com/nhrnni253/djy/blob/master/gb/19/12/16/n11726663.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/1506052148492039-600x400-150x120.jpg" align ="left"></a>中共的所作所为，连曾经在诸多问题上支持其的俄罗斯也看不下去了，中共联俄制美的算盘恐难以实现。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月17日 5:06 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/nhrnni253/djy/blob/master/gb/19/12/19/n11732211.md#1" target="_blank">陆客：末世民风（三）</a><br></h3>高官偷偷在跑路
 骗子傻子放烟雾
 洗脑群众受害多
