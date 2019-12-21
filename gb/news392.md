@@ -21,9 +21,15 @@
 <tr><td><h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/19/n11731926.md#1" target="_blank">袁斌：复旦改章程 中共撕下大学的遮羞布</a><br></h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/19/n11731926.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/fudan-600x400-1-150x120.jpg" align ="left"></a>今天一则复旦学生唱校歌的视频在微信群里火了。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月19日 1:40 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/18/n11731215.md#1" target="_blank">赖锦东：从信仰高度看中美贸易战</a><br></h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/18/n11731215.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/caifu-150x120.jpg" align ="left"></a>政教分离是指政府与教会的分立，各司其职、各负其责。但是，政教分离绝不是政治与信仰的分离，相反，政治当顺服于信仰，政治的价值观根植于信仰之中。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月19日 10:02 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/18/n11731417.md#1" target="_blank">夏小强：中共官方为何修改复旦大学章程？</a><br></h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/18/n11731417.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/363985048_a1a0fae674_b-150x120.jpg" align ="left"></a>那么，中共为什么还要多此一举修改高校校章？......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月19日 8:51 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/18/n11730890.md#1" target="_blank">海风：澳门取代香港 又是一场政治闹剧</a><br></h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/18/n11730890.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/130911100058100311-600x400-150x120.jpg" align ="left"></a>顺我者昌，逆我者亡。这是中共独裁者的天性。香港不听话，中共就要把它国际金融中心的地位废除。
+<tr><td><h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/21/n11736915.md#1" target="_blank">吐为快：党为何凌蹈一切？</a><br></h3>隔府操纵费周章，独擅其美快魔肠
+顾盼自雄朝堂上，奴才嬖臣环绕忙
+一掷千金乐友邦，万众翘首颂太阳
+短髭常沾民脂膏，御榻日染嫔妃香
 
-中共废除香港国际金融中心的想法其实很早就有了，先是希望用上海、广州来替代香港，后来又希望用深圳来取代香港，结果都行不通。如今又想用澳门来取代香港，难道澳门就能行得通吗？......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月19日 1:15 AM			</td></tr>
+媒体聒噪扰党想，独吃自疴乐妖腔
+割韭年酿长寿汤，活摘永葆肝肾旺
+赵家公子眠花爽，党国权贵借酒狂
+宸阶留照魄久驻，两会怡神梦永享......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月21日 4:00 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/21/n11736882.md#1" target="_blank">?文武：川普成为全球反击中共的旗手</a><br></h3>自从川普当上美国总统以来，全球反击中共的形势就发生了巨大的变化。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月21日 3:48 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/21/n11736531.md#1" target="_blank">袁斌：自打耳光 花千芳“爱国”情怀碎了一地</a><br></h3>早就走下坡路的著名五毛花千芳日前因为自曝母亲养老证被收缴一下又成了舆论热点。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月21日 12:40 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/20/n11735097.md#1" target="_blank">关乐：修改校章不过是自往死凑的亡党臭棋</a><br></h3>复旦校章修，断然失自由。
