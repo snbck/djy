@@ -21,8 +21,7 @@
 
 一直在争论的两方对“斯蒂尔档案”（Steele Dossier）以及卡特?佩奇（Carter Page）是否是俄罗斯特工都宣称报告证明自己是正确的并开始庆祝胜利。
 
-但是，任何看过报告实际内容.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月23日 2:16 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/22/n11738946.md#1" target="_blank">王赫：台湾出路何在？</a><br></h3>12月18日，台湾，2020中华民国总统选举首场政见发表会登场，国民党、民进党、亲民党三组候选人首度同台讲述政见（相比之下，可怜大陆民众只能假选村官）。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月23日 2:13 AM			</td></tr>
+但是，任何看过报告实际内容.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月22日 9:36 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/21/n11737735.md#1" target="_blank">金浴凤：林郑之夫的渊默</a><br></h3>泪珠满江皆是恨，失魄无依何处沦？......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月22日 6:59 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/21/n11737715.md#1" target="_blank">理悟：叹私企</a><br></h3>可怜私企被党欺，命如风筝任党戏。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月22日 6:36 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/21/n11737704.md#1" target="_blank">廖祖笙：全面失控可能袭向习近平</a><br></h3>全面失控可能袭向习近平，这不是危言耸听，而是有种种显见的迹象......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月22日 6:30 AM			</td></tr>
@@ -55,5 +54,8 @@
 此亦非党意，歪打正着就。
 党妈何图谋？不能不深究。
 当初为夺权，自由猛忽悠。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月20日 5:40 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/20/n11734669.md#1" target="_blank">袁斌：一个副省级中共官员的敛金术</a><br></h3>中共十八大以来，落马的亿元贪官已达43人。
+
+这些贪官究竟是通过何种手段捞钱的？前中共江西省常委、赣州市委书记史文清的敛金术为我们提供了一份生动的样本。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月20日 3:44 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/hxrfvz257/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/hxrfvz257/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/hxrfvz257/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/hxrfvz257/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/hxrfvz257/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/hxrfvz257/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/hxrfvz257/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/hxrfvz257/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/hxrfvz257/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/hxrfvz257/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/hxrfvz257/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/hxrfvz257/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hxrfvz257/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
