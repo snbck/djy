@@ -560,9 +560,6 @@ WalletHubÍøÕ¾·ÖÎö±È½ÏÁË50¸öÖÝµÄ19¸ö¼ÓÈ¨¹Ø¼üÖ¸±ê£¬°üÀ¨×öÒå¹¤µÄ±ÈÀý¡¢ÊÕÈë¾èÔùÇé¿ö¡
 <tr><td><h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/20/n11734750.md#1" target="_blank">¾É½ðÉ½ÖÝÁ¢´óÑ§ÔÙ´ÎÊÕµ½Õ¨µ¯ÍþÐ²   ¹Ø±ÕÐ£Çø</a><br></h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/20/n11734750.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/sfsu02-1-150x120.jpg" align ="left"></a>ÖÜËÄ£¨12ÔÂ19ÈÕ£©ÏÂÎç£¬¾É½ðÉ½ÖÝÁ¢´óÑ§£¨San Francisco State University£©ÔÙ´ÎÊÕµ½Î´¾­ºËÊµµÄÕ¨µ¯ÍþÐ²£¬Ñ§Ð£Ñ¸ËÙ×ö³ö·´Ó¦£¬¹Ø±ÕÁËÖ÷Ð£Çø¡£
 
 ÏÂÎç2µã19·Ö£¬¸ÃÐ£ÊÕµ½ÁË¶Ô¡°Ö÷Ð£Çø¶à¶°½¨ÖþÎï¡±µÄÍþÐ²£¬ÓÚÊÇ·¢³ö¾¯±¨£¬ÒªÇóÑ§ÉúÁôÔÚÐ£Ô°ËÞÉáÄÚ£¬²¢¿ªÊ¼¹Ø±ÕÖ÷Ð£Çø¡£°ÙÄê´å£¨Centennial Vil.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ20ÈÕ 2:05 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/20/n11734741.md#1" target="_blank">¾É½ðÉ½ÍåÇøÒ»¸öÔÂÄÚÒÑÓÐ3ÈËËÀÓÚÁ÷¸Ð ÎÀÉú¾Ö¶Ø´ÙÃñÖÚ´òÒßÃç</a><br></h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/20/n11734741.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/tu1-VCG31462437481-150x120.jpg" align ="left"></a>½üÒ»¸öÔÂÄÚ£¬ÂíÁÖÏØ£¨Marin County£©ºÍË÷ÅµÂíÏØ£¨Sonoma County£©£¬·Ö±ðÓÐÁ½ÈËºÍÒ»ÈËËÀÓÚÁ÷¸Ð¡£
-
-ÖÜ¶þ£¨12ÔÂ17ÈÕ£©£¬ÂíÁÖÏØÎÀÉú²¿ÃÅ·¢²¼Á½ÀýÒòÎªÁ÷¸ÐËÀÍöµÄ²¡Àý£¬µÚ1Àý·¢ÉúÔÚ11ÔÂµÄ×îºóÒ»ÖÜ£¬µÚ2Àý·¢ÉúÔÚ12ÔÂµÄµÚÒ»ÖÜ¡£ËûÃÇ±íÊ¾£¬ÀÏÄêÈËÊÇ×îÈÝÒ×¸ÐÈ¾Á÷¸ÐµÄÈËÈº£¬ÕâÁ½ÈËÇ¡Ç¡Ò²¶¼ÊÇ´óÓÚ65ËêµÄÄêÁä¡£ÒÔ.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ20ÈÕ 1:59 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/22/n11738720.md#1" target="_blank">º£Íø£º³¤½­¼ûµ×Ò÷</a><br></h3>Îäºº±¾ÎÞºµ£¬
 ½­µ×ÐÂÖÞÏÖ¡£
 ÈýÏ¿°ÓÄÑÑÚ£¬
@@ -769,7 +766,4 @@ NBC¡¢ABC¡¢CBSºÍ¸£¿ËË¹µÄµçÊÓ½ÚÄ¿£¬´Ó2016Äê´ÓÃ¿ÔÂÊÕ·Ñ5ÃÀÔª.........<br><img align=
 ´Ë´ÎMyShakeÔ¤¾¯£¬ÊÇÓÉ12ÔÂ17ÈÕÔÚÖÐº£°¶£¨Central Coast£©ºÍÊ¥»ª½ð¹È£¨San Joaquin Valley£©·¢ÉúµÄÀïÊÏ4.3¼¶µØÕð´¥·¢¡£
 
 ¸ù¾ÝÃÀ¹úµØÖÊµ÷²é¾Ö£¨USGS£©µÄÊý¾Ý£¬¸Ã´ÎµØÕð·¢ÉúÔÚ17ÈÕÉÏÎç10:3.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ20ÈÕ 2:23 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/hxrfvz257/djy/blob/master/gb/19/12/20/n11734740.md#1" target="_blank">ÈË¿ÚÆÕ²é¾Ö¹Í50ÍòÆÕ²éÔ± »¶Ó­»ªÈË¼ÓÈë</a><br></h3>ÃÀ¹úÈË¿ÚÆÕ²é¾ÖÕýÔÚÕÐÆ¸È«¹úÊýÊ®Íò¸öÖ°Î»£¬ÒÔÐ­Öú½øÐÐ2020ÄêÈË¿ÚÆÕ²é¹¤×÷£¬»¶Ó­»ªÈË¼ÓÈë·¢»Ó×÷ÓÃ£¬³ÉÎªÀúÊ·µÄÒ»²¿·Ö¡£
-
-ÃÀ¹úÏÜ·¨¹æ¶¨Ã¿10Äê½øÐÐÒ»´ÎÈË¿ÚÆÕ²é¡£ ÈË¿ÚÆÕ²éÊý¾Ý½«È·¶¨¸÷ÖÝÔÚ¹ú»áµÄ´ú±íÈ¨£¬ÒÔ¼°Ã¿ÄêÈçºÎ½«ÊýÊ®ÒÚÃÀÔªµÄÁª°î×Ê½ð·ÖÅä¸ø¸÷ÖÝºÍµØ·½ÉçÇø£¬ÓÃÓÚ¹Ø¼üµÄ¹«¹²·þÎñºÍ»ù´¡ÉèÊ©£¬°üÀ¨ÕïËù¡¢Ñ§Ð£¡¢µÀÂ·ºÍ½ô¼±·þÎñ¡£1.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ20ÈÕ 2:01 PM			</td></tr>
 </table><h4>ÊÖ»úÉÏ³¤°´²¢¸´ÖÆÏÂÁÐÁ´½Ó»ò¶þÎ¬Âë·ÖÏí±¾ÎÄÕÂ£º</h4>https://github.com/hxrfvz257/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/hxrfvz257/djy/blob/master/gb/n24hr.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hxrfvz257/djy/blob/master/gb/n24hr.md%231" title="·ÖÏí±¾ÎÄÕÂ"></a><br>Ô­ÎÄµØÖ·£º <a href="http://www.epochtimes.com/gb/n24hr.htm">http://www.epochtimes.com/gb/n24hr.htm</a>    £¨¹úÄÚÐè<a href="https://git.io/JesJV">ÏÂÔØ·­Ç½Èí¼þ</a>²ÅÄÜ·ÃÎÊ£©</p>
