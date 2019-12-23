@@ -518,7 +518,11 @@ Kissner±íÊ¾£¬ËäÈ»²¢²»Ì«ÁË½âÐÅÑöÕßÔÚÖÐ¹úËùÔâÊÜµÄÆÈº¦£¬µ«ËûÈÏÎª¡°ÈÎºÎÈË¶¼Ó¦¸ÃÓÐÐÅÑ
 Ô½Õ½¼ÍÄî±®Ô°Çø´Ó¹æ»®µ½Âä³ÉºÄÊ±10Äê¶à£¬ÓÉ»ÊºóÇøÇø³¤¿­´Ä£¨Melinda Katz£©Ö÷µ¼£¬Å¦Ô¼ÊÐ¹«Ô°¾ÖÉè¼Æ£¬Á½×ù¼ÍÄî±®¶¼²ÉÓÃ×î¼áÓ²µÄÊ¯²Ä¡ª¡ª»¨¸ÚÑÒ£¬Ò»×ùÐ´×Å¡°»ÊºóÇøÔ½Õ½¼ÍÄî±®¡±¡¢ÁíÒ»×ùÔò×­¿Ì.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ21ÈÕ 10:34 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/21/n11737276.md#1" target="_blank">ÌìÈ»ÆøÌ«¹óÃñÖÚÍµÉÕÃº ÖÐ¹²¹ÙÔ±Ç¿ÐÐ·âÔîÌ¨</a><br></h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/21/n11737276.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/7d45b3c9a3db24ea4013d87bd3eac9a9-150x120.jpg" align ="left"></a>Îª¼õÉÙ¿ÕÎÛ£¬ÖÐ¹ú»ª±±µØÇø½üÄêÇ¿ÍÆÃº¸ÄÆø¡¢Ãº¸Äµç£¬½ûÖ¹¶¬¼¾È¼ÃºÈ¡Å¯¡£µ«ÒòÎªÌìÈ»Æø¡¢µç·Ñ¹ý¸ß£¬Ò»Ð©ÃñÖÚÈÔÍµÍµÉÕÃº£¬Ê¹µÃ½üÈÕ¹ÙÃñ³åÍ»Éý¸ß£¬ÉõÖÁÓÐ´å¸É²¿Ç¿ÐÐ½øÈëÃñÕ¬ÓÃË®Äà·âËÀÔîÌ¨¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ21ÈÕ 10:33 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/21/n11736580.md#1" target="_blank">³ÇÊÐ¹æ»®Î¯Ô±»áÆô¶¯·¨À­Ê¢Ë®±õ¡°ÍÁµØÉó²é³ÌÐò¡±</a><br></h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/21/n11736580.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/2137da2f9bb3222149354d49cf75e706-150x120.jpg" align ="left"></a>16ÈÕ£¬Å¦Ô¼ÊÐ³ÇÊÐ¹æ»®Î¯Ô±»á£¨CPC£©Åú×¼·¨À­Ê¢ÌØ±ðË®±õÇøµÄÖØ½¨¿ª·¢ÏîÄ¿-¡°The Special Flushing Waterfront District¡±£¬¿ªÊ¼½øÈë¡°Í³Ò»ÍÁµØÉó²é³ÌÐò£¨ULURP£©¡±¡£¸ÃÏîÄ¿ÓÉÊÐ¸®Ö÷µ¼µÄ·¨À­Ê¢ÍþÀûµã¨C¿ÉÀÖÄÈ·¢Õ¹¹«Ë¾£¨FWCLDC£©Ìá³ö£¬¼Æ»®½«½¨Ôì1,725Ì×¹«Ô¢£¬°üº¬ÉÌÒµÓÃÍ¾ÓëÉçÇøÉè.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ21ÈÕ 10:29 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/21/n11736375.md#1" target="_blank">×éÍ¼£º2019ÄêÆæÈ¤Í¼Æ¬¾«Ñ¡</a><br></h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/21/n11736375.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/2019-funny-150x120.jpg" align ="left"></a>ÊÀ½çÖ®´óÎÞÆæ²»ÓÐ£¬Ã¿¸öµØ·½¶¼ÓÐÊôÓÚ¸÷×ÔÖµµÃÍ¬ÀÖµÄÊÂÇé¡¢ÈüÊÂ»ò½ÚÈÕ£¬½ìÊ±ÈËÃÇ»áÒÔ²»Í¬µÄ·½Ê½Ò»ÆðÇì×£¡¢¹²ÏåÊ¢¾Ù£¬ÓÐÊ±Òà»á·¢ÉúÓÐÈ¤µÄÊÂÇé¡£ÔÚ±¾ÎÄÖÐÌôÑ¡Ò»×é2019ÄêµÄ¾«Ñ¡Í¼Æ¬ÑûÄúÒ»Í¬¹ÛÉÍ¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ21ÈÕ 10:17 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/23/n11741456.md#1" target="_blank">³ÅÏã¸ÛÃñÖ÷ÔË¶¯ ±°Ê«Ê¡ÉÌ¼Ò±»ÁÐÎª¡°»ÆÉ«¡±</a><br></h3>Ïã¸Û¡°·´ËÍÖÐ¡±ÔË¶¯³öÏÖµÄ¡°»ÆÉ«¾­¼ÃÈ¦¡±£¬¿´ÆðÀ´ÒÑ¾­´«µ½¼ÓÄÃ´ó£¬±°Ê«Ê¡ÒÑ¾­ÓÐÉÌ¼Ò±»ÒÔÑÕÉ«»®·Ö¡£
+
+ÓàÏÈÉú£¨Alan Yu£©ÔÚ±°Ê«Ê¡ÁÐÖÎÎÄ±±²¿¾­ÓªÒ»¼ÒÆû³µÎ¬ÐÞµê£¬ÉÏ¸öÔÂ£¬Ëû·¢ÏÖ×Ô¼ºµÄÉúÒâ±»ÁÐÎª¡°»ÆÉ«¡±¡£
+
+ÔÚÏã¸Û£¬Í¬ÇéºÍÖ§³ÖÃñÖ÷ÔË¶¯µÄµê³ÆÎª¡°»Æµê¡±£¬Ö§³ÖÖÐ¹²Õþ¸®¼°¾¯²ìµÄµê³ÆÎª¡°À¶µê¡±¡£ÓÐ¿¹ÕùÕßÈÏÎª£¬°ï³Ä¡°»Æµê¡±ÊÇ×î.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ24ÈÕ 6:23 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/23/n11741382.md#1" target="_blank">10ÄêÇ°¸ß¿Õ×÷ÒµÌ¨×¹Âä4ÈËËÀ Òþ»¼ÈÔÔÚ</a><br></h3>10ÄêÇ°£¬Ê¥µ®Æ½°²Ò¹·¢ÉúÔÚ¶àÂ×¶àµÄÒ»´Î½¨Öþ¸ß¿Õ×÷ÒµÌ¨µ¹ËúÊÂ¹ÊÔì³É4ÈËËÀÍö¡£ÖÁ½ñ£¬ÈÔÓÐÒÉÎÊ´ý½â¡£
 
 µ±Ê±µÄ4ÃûËÀÕß¶¼ÊÇÀ´×Ô¶«Å·µÄÐÂÒÆÃñ£¬ÄêÁäÔÚ25ËêÖÁ40ËêÖ®¼ä¡£ËûÃÇÔÚ¶àÂ×¶àÒ»¶°¸ß²ã½¨ÖþÎïÉÏ½øÐÐÑôÌ¨Î¬ÐÞÊ±£¬ÄÇ¸ß¿Õ¹¤×÷Ì¨´Ó30Ã×µÄ¸ß¿Õ×¹µØ¡£ÁíÒ»Ãû¹¤ÈËÊÜÁËÖØÉË£¬µÚ6ÈËÒòÎªÓÐºÏÊÊµÄ°²È«Êø¸¿£¬ÐüÔÚ°ë¿Õµ«Ã»ÓÐÊÜÉË¡£
