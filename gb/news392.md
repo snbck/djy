@@ -43,7 +43,7 @@
 <tr><td><h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/23/n11739547.md#1" target="_blank">理悟：悲哀自干五</a><br></h3>千古臭名扬，卖力挺共狼。
 为表心意铁，自己带干粮。
 亲娘被狼咬，你说多沮丧？......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月23日 11:50 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/22/n11739240.md#1" target="_blank">张林：在茶园待了3年 25年不敢喝中国茶</a><br></h3>1994年，因为在北京、安徽从事大量民运活动，我被中共当局按上莫须有罪名，拉到安徽宣城南湖劳教基地。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月23日 8:25 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/22/n11739240.md#1" target="_blank">张林：在茶园呆了3年，25年不敢喝中国茶</a><br></h3>1994年，因为在北京、安徽从事大量民运活动，我被中共当局按上莫须有罪名，拉到安徽宣城南湖劳教基地。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月23日 8:25 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/22/n11737874.md#1" target="_blank">【名家专栏】司法部监察长发现了什么</a><br></h3>司法部监察长迈克尔?霍洛维茨（Michael E. Horowitz）针对通俄门调查始末的报告已经发布了一个多星期。
 
 一直在争论的两方对“斯蒂尔档案”（Steele Dossier）以及卡特?佩奇（Carter Page）是否是俄罗斯特工都宣称报告证明自己是正确的并开始庆祝胜利。
