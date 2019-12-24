@@ -27,9 +27,9 @@
 <tr><td><h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/21/n11737305.md#1" target="_blank">马云卸任后 在湖北获“新职”</a><br></h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/21/n11737305.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/181212095028100484-150x120.jpg" align ="left"></a>马云卸任阿里巴巴董事局主席后，日前获得中共湖北省政府“经济顾问”的头衔。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月22日 12:26 AM							</td></tr>
 <tr><td><h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/21/n11737361.md#1" target="_blank">安全担忧 美海军限制使用抖音海外版</a><br></h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/21/n11737361.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/000_1MG8Y2-150x120.jpg" align ="left"></a>本周早些时候，美国海军禁止在政府提供的移动设备上使用抖音海外版TikTok，并称这个短视频应用会带来“网络安全威胁”。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月21日 11:43 PM							</td></tr>
 <tr><td><h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/21/n11737218.md#1" target="_blank">美防长：美在中东的行动不影响聚焦中俄</a><br></h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/21/n11737218.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/000_1N641W-150x120.jpg" align ="left"></a>美国国防部长马克·埃斯珀(Mark Esper) 周五（12月20日）表示，美军将继续集中精力应对中共和俄罗斯的安全挑战，不会因为中东和其他地区局势而分散注意力。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月21日 9:01 PM							</td></tr>
-<tr><td><h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/23/n11739502.md#1" target="_blank">【翻墙必看】90后女孩遭中共红三代老板强奸</a><br></h3>大纪元每天为读者梳理翻墙必看的文章：
+<tr><td><h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/23/n11739502.md#1" target="_blank">【翻墙必看】90后女孩遭中共红二代老板强奸</a><br></h3>大纪元每天为读者梳理翻墙必看的文章：
 
-1.传中共红三代涉持枪强奸下属 警方不调查
+1.传中共红二代涉持枪强奸下属 警方不调查
 父亲是河南一家大型央企的负责人，她中学后赴美留学，归国后经引荐进入一家名为“美好世界航空集团”的公司，未想却遭遇一场恶梦。
 
 2.【内幕】小马奔腾翻车 车峰吞噬数字王国
