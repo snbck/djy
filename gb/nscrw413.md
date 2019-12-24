@@ -30,9 +30,9 @@
 <tr><td><h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/23/n11741030.md#1" target="_blank">大陆课外培训机构倒闭潮 今年1.2万家关停</a><br></h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/23/n11741030.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/VCG111254332907-150x120.jpg" align ="left"></a>日前，上海又一家教育培训机构——优胜教育闸北门店关闭。有数据显示，今年12,000家课外培训机构倒闭。一些机构人去楼空，交了费的家长不知道去哪里要钱。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月24日 1:39 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/23/n11741024.md#1" target="_blank">中国能成最大经济体？专家：难超美国</a><br></h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/23/n11741024.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/01/1601210648132357-600x400-150x120.jpg" align ="left"></a>部分媒体近日报导，全球第二大经济体中国即将挤下美国，成为第一大经济体。彭博专栏作家分析，这样的报导恐误导阅众，美国财富实则远超过中国，稳居全球领先地位。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月24日 1:00 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/23/n11741027.md#1" target="_blank">安倍和习近平会面 促保持香港自由开放</a><br></h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/23/n11741027.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/000_1NA0FB-150x120.jpg" align ="left"></a>周一（12月23日），日本首相安倍晋三和中国国家主席习近平会面时说，香港应该“继续保持自由开放”。半年多来，香港反送中抗议震惊全球。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月24日 1:45 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/23/n11739502.md#1" target="_blank">【翻墙必看】90后女孩遭中共红二代老板强奸</a><br></h3>大纪元每天为读者梳理翻墙必看的文章：
+<tr><td><h3><a href="https://github.com/synhl2788/djy/blob/master/gb/19/12/23/n11739502.md#1" target="_blank">【翻墙必看】90后女孩遭中共红三代老板强奸</a><br></h3>大纪元每天为读者梳理翻墙必看的文章：
 
-1.传中共红二代涉持枪强奸下属 警方不调查
+1.传中共红三代涉持枪强奸下属 警方不调查
 父亲是河南一家大型央企的负责人，她中学后赴美留学，归国后经引荐进入一家名为“美好世界航空集团”的公司，未想却遭遇一场恶梦。
 
 2.【内幕】小马奔腾翻车 车峰吞噬数字王国
