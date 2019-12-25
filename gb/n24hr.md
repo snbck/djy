@@ -559,6 +559,7 @@ Kissner±íÊ¾£¬ËäÈ»²¢²»Ì«ÁË½âÐÅÑöÕßÔÚÖÐ¹úËùÔâÊÜµÄÆÈº¦£¬µ«ËûÈÏÎª¡°ÈÎºÎÈË¶¼Ó¦¸ÃÓÐÐÅÑ
 ¾Ý¶àÂ×¶à¾¯·½Í¸Â¶£¬41ËêµÄ¿ËÀ×¸ñ£®Ëþ¿Ë£¨Craig Tucker£©ÖÜÎå£¨20ÈÕ£©´Ó¿¿½üQueen StreetºÍOssington Avenue½Ö¿ÚµÄ¶àÂ×¶à¾«Éñ²¡ÔºÊ§×Ù¡£
 
 Ëþ¿ËÊÇ¶àÂ×¶à¾«Éñ²¡Ôº³Éñ«¼°.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ23ÈÕ 4:00 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/dueiwa2503/djy/blob/master/gb/19/12/24/n11742891.md#1" target="_blank">ÌÆºÆ£ºÄ©Õ½</a><br></h3>ÕýÐ°¾öÕ½Ä©Ï·ÑÝ   Ïã½­·é»ðÂþÁ¬Ìì   ÉÆÑïµÂÊ¤°Ü¶ñ¶é   ´«ÆæÓÀÃúÁèÏöáÛ......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ25ÈÕ 11:25 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dueiwa2503/djy/blob/master/gb/19/12/25/n11743933.md#1" target="_blank">»ñÖÝ³¤¼ÙÊÍ¼íÆÒÕ¯ÒÆÃñ±»ICE´þ²¶</a><br></h3>Ò»Ãû·¸ÏÂÄ±É±×ïµÄ¼íÆÒÕ¯ÄÑÃñÖÜÒ»£¨12ÔÂ23ÈÕ£©¸Õ´Ó¼ÓÖÝ¼àÓü±»ÊÍ·Åºó£¬¾Í±»ÒÆ½»¸øÁª°îÌ½Ô±£¬¿ÉÄÜ»á±»Ç²·µ¡£
 
 40ËêµÄµÙË¹¡¤ÌÀ£¨Tith Ton£©ÒòÉ±ËÀÒ»ÃûµÐ¶Ô°ïÅÉ³ÉÔ±¶øÈëÓü£¬·þÐÌ22Äêºó»ñµÃÖÝ³¤Å¦É­£¨Gavin Newsom£©¼ÙÊÍ¡£
@@ -759,5 +760,4 @@ Kissner±íÊ¾£¬ËäÈ»²¢²»Ì«ÁË½âÐÅÑöÕßÔÚÖÐ¹úËùÔâÊÜµÄÆÈº¦£¬µ«ËûÈÏÎª¡°ÈÎºÎÈË¶¼Ó¦¸ÃÓÐÐÅÑ
 <tr><td><h3><a href="https://github.com/dueiwa2503/djy/blob/master/gb/19/12/22/n11739086.md#1" target="_blank">Ê¥µ®³öÐÐ Äã×öºÃ¼Æ»®ÁËÂð£¿£¨¹«Â·Æª£©</a><br></h3>¾Ý¡¶Ã¿ÈÕÓÊ±¨¡·±¨µ¼£¬¼Ý³µÕßÍÅÌåAAÔ¤¼Æ£¬½ñÄêÊ¥µ®¡¢ÐÂÄêÆÚ¼ä£¬¹«Â·ÉÏ×î·±Ã¦µÄÁ½Ìì½«»áÊÇ±¾ÖÜËÄºÍÖÜÎå£¨12ÔÂ19ÈÕºÍ20ÈÕ£©£¬½ìÊ±¿ÉÄÜÓÐ1,700ÍòÁ¾³µÐÐÊ»ÔÚÓ¢¹ú¸÷µØµÄ¹«Â·ÉÏ¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ23ÈÕ 5:08 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dueiwa2503/djy/blob/master/gb/19/12/22/n11739079.md#1" target="_blank">Ê¥µ®³öÐÐ Äã×öºÃ¼Æ»®ÁËÂð£¿£¨ÌúÂ·Æª£©</a><br></h3>Ê¥µ®½ÚÊÇÎ÷·½ÈËÒ»¼ÒÍÅ¾ÛµÄ½ÚÈÕ£¬Ã¿ÄêµÄÊ¥µ®½Ú¶¼ÓÐÉÏÇ§ÍòÓ¢¹úÈËÌ½·ÃÇ×ÓÑ¡¢¹ºÎï»òÕß³ö¹ú¶È¼Ù¡£Èç¹ûÄã²»×öºÃ³ä·ÖµÄ¼Æ»®ºÍ×¼±¸£¬¿ÉÄÜ»á¸ÏÉÏ¹«Â·Èû³µ¡¢ÁÐ³µÈ¡Ïû¡¢¶ñÁÓÌìÆøµÈÎÊÌâ£¬ÄÑÃâ»áÓ°Ïì¼ÙÆÚµÄÐÄÇé¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ23ÈÕ 5:05 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dueiwa2503/djy/blob/master/gb/19/12/22/n11738747.md#1" target="_blank">ÃÜÉ½ÊÐÎ¯Ç°¸±Êé¼ÇÀîÁ¬´º»Ø¹úÍ¶°¸ ±»ÆðËß</a><br></h3>½üÈÕ£¬ÖÐ¹²Ã½Ìå±¨µ¼£¬2019Äê9ÔÂ24ÈÕ£¬ÍâÌÓÖ°Îñ·¸×ïÏÓÒÉÈËÀîÁ¬´ºÖ÷¶¯»Ø¹úÍ¶°¸£¬²¢ÒÑÍË³ö´ó²¿·ÖÌ°ÎÛËùµÃÔß¿î¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ23ÈÕ 3:42 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/dueiwa2503/djy/blob/master/gb/19/12/23/n11738996.md#1" target="_blank">¶àÂ×¶à½ñÄêÇ¹Éù²»¶Ï ¾¯²ì×Ü³¤£ºÃ÷Äê»ý¼«Ó¦¶Ô</a><br></h3>¶àÂ×¶à½ÖÍ·2019ÄêÇ¹Éù²»¶Ï¡£¶Ô´Ë£¬¶àÂ×¶à¾¯²ì×Ü³¤É£µÂË¹£¨Mark Saunders£©ÔÚÄêÄ©µÄÐÂÎÅ·¢²¼»áÉÏ±íÊ¾£¬½«¼ÌÐø´ò»÷Ç¹Ö§·¸×ïºÍ°ïÅÉ±©Á¦¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê12ÔÂ23ÈÕ 3:31 AM			</td></tr>
 </table><h4>ÊÖ»úÉÏ³¤°´²¢¸´ÖÆÏÂÁÐÁ´½Ó»ò¶þÎ¬Âë·ÖÏí±¾ÎÄÕÂ£º</h4>https://github.com/dueiwa2503/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/dueiwa2503/djy/blob/master/gb/n24hr.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dueiwa2503/djy/blob/master/gb/n24hr.md%231" title="·ÖÏí±¾ÎÄÕÂ"></a><br>Ô­ÎÄµØÖ·£º <a href="http://www.epochtimes.com/gb/n24hr.htm">http://www.epochtimes.com/gb/n24hr.htm</a>    £¨¹úÄÚÐè<a href="https://git.io/JesJV">ÏÂÔØ·­Ç½Èí¼þ</a>²ÅÄÜ·ÃÎÊ£©</p>
