@@ -27,7 +27,14 @@
 <tr><td><h3><a href="https://github.com/osnkrv285/djy/blob/master/gb/19/12/24/n11743529.md#1" target="_blank">周晓辉：美公开斩首行动画面 平壤北京需掂量</a><br></h3><a href="https://github.com/osnkrv285/djy/blob/master/gb/19/12/24/n11743529.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/2019122301572-600x394-1-150x120.jpg" align ="left"></a>针对日前朝鲜扬言的要在圣诞节期间给美国送上一份“大礼”，美国除了提高戒备、派侦察机侦查朝鲜动向、与日韩沟通等外，还于12月23日突然公开了外界很难看到的部分演习画面。据韩国《朝鲜日报》报导，该画面展示的是驻韩美军特种作战司令部与韩军特战队员于11月在群山基地进行的入境朝鲜并生擒其领导人的场景。
 
 显然，对于朝鲜是将.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月25日 4:50 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/osnkrv285/djy/blob/master/gb/19/12/24/n11742596.md#1" target="_blank">可心：西方节日商品背后中国人少为人知的苦难</a><br></h3><a href="https://github.com/osnkrv285/djy/blob/master/gb/19/12/24/n11742596.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/1._letter-from-masanjia-10screenings-in-denmark_-600x400-150x120.jpg" align ="left"></a>正值2019年圣诞节到来之际，西方国家沉浸在节日的喜悦当中之时，一则关于求救信的新闻占据了世界多个媒体的头条——英国伦敦一位6岁女孩在圣诞卡上发现了来自上海监狱奴工的求救信息。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月24日 11:59 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/osnkrv285/djy/blob/master/gb/19/12/27/n11748226.md#1" target="_blank">陈达：中共“外扰神韵内禁圣诞”自证是妖孽</a><br></h3>今岁圣诞节，又现神韵热。
+扩至七个团，订票五洲火。
+主流多恐后，口碑皆颂歌。
+有道惟天有，有叹神杰作。
+有惊神州奇，有把中文学。
+泾渭自分明，中共与中国。
+华裔倍自豪，从根排马列。
+更知共产党，到底何货色。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月27日 11:39 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/osnkrv285/djy/blob/master/gb/19/12/27/n11748206.md#1" target="_blank">理悟：怪胎红朝</a><br></h3>红朝实属一怪胎，空前绝后少中外。
 仁政爱民谓何物？公明勤俭不复在。
 廉洁奉公成笑谈，道德准则一脚开。
