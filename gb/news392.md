@@ -26,7 +26,10 @@
 然而，民众的合法愿望却不能顺利实现。因为各家银行都有各自的套路为民众换外汇设坎，下面以全国外汇管制最宽松的北京为例，看看这些坎。
 
 第一道坎，银行尽量阻止民众购买外汇.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月26日 11:24 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/mchnr2468/djy/blob/master/gb/19/12/26/n11747187.md#1" target="_blank">常忍：中共让杀人犯成为“标兵”“英模”</a><br></h3><a href="https://github.com/mchnr2468/djy/blob/master/gb/19/12/26/n11747187.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2006/03/603030013011124-150x120.jpg" align ="left"></a>十二月二十五日明慧网的一则报导，叙述一名劳教所所长的平素作为，让人不胜唏嘘。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月26日 10:33 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/mchnr2468/djy/blob/master/gb/19/12/29/n11752305.md#1" target="_blank">云鹤天：十六字令?中共在二零一九</a><br></h3>难，
+游走钢丝又一年，
+平衡失，
+脚下是深渊。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月29日 12:34 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/mchnr2468/djy/blob/master/gb/19/12/28/n11751007.md#1" target="_blank">云鹤天：观台湾大选</a><br></h3>一国两制门
 弄巧成拙蠢
 坑了韩国瑜
