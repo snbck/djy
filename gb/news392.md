@@ -31,7 +31,10 @@
 
 有人说，“这项改革并不算意外”，因为“十九大报告”曾明确指出，要“破除妨碍劳动力、人才社会.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月01日 1:16 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ublry267/djy/blob/master/gb/19/12/31/n11757865.md#1" target="_blank">陈思敏：中共5G现况虚火过盛</a><br></h3><a href="https://github.com/ublry267/djy/blob/master/gb/19/12/31/n11757865.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/GettyImages-1142487816-150x120.jpg" align ="left"></a>中共将2019年视为5G元年进行抢攻，在年内从发牌到商用只用了5个月的时间，并积极宣传5G领先地位。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月31日 11:37 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/ublry267/djy/blob/master/gb/19/12/31/n11757360.md#1" target="_blank">洪微：中共新军事战略受挫</a><br></h3><a href="https://github.com/ublry267/djy/blob/master/gb/19/12/31/n11757360.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2015/07/1507021752482584-150x120.jpg" align ="left"></a>美国最新的国防预算，高达7180亿美元，国防部长连续用“中国，中国，中国”3次（其实针对的是中共），来解释2020国防开支的重点。和前任国防部长一样，中共的军事威胁，成为美军的头等大事。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年12月31日 9:23 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ublry267/djy/blob/master/gb/20/1/2/n11761788.md#1" target="_blank">金浴凤：元旦寄语迷中帝</a><br></h3>打虎威振山河动，贪权足陷蟾迷宫；
+思圄破残马列里，道惑倿嬖左右中；
+一路撒金不嫌远，阻川徘徊应旋踵；
+台港自由是典范，苏联专制成警钟。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月02日 2:00 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ublry267/djy/blob/master/gb/20/1/2/n11761994.md#1" target="_blank">伍新：贺中华民国《反渗透法》通过</a><br></h3>二零一九年末，反渗透法通过。
 似乎势不可遏，又像拖无可拖。
 此法那么难产，原因值得捉摸。
