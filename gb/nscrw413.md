@@ -11,7 +11,7 @@
 1.周晓辉：川普下通牒 北京纠结三大难题
 国当地时间12月31日，美国总统川普（特朗普）发推表示：“我将在1月15日与中国签署一项非常庞大而全面的第一阶段贸易协议。该仪式将在白宫举行。中方高层代表将出席。”“稍后我将去北京，第二阶段（贸易协议）的对话将开始！”
 
-2.【.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月03日 9:21 PM			</td></tr>
+2.【.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月03日 8:30 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/2/n11762158.md#1" target="_blank">4.7亿美元假耐克鞋入美 华人作案手法曝光</a><br></h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/2/n11762158.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/6ad4bbed0a0e451affeea6273ec55c75-150x120.jpg" align ="left"></a>根据网站Quartz在2020年1月1日报导，一个出口假冒运动鞋到美国的团伙，利用伪造文书、虚假电邮和一次性电话，将假冒耐克、路易斯威登等品牌的鞋子，运到美国。根据联邦起诉书，几年来多宗案子涉及的总金额高达4.72亿美元。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月03日 12:34 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/3/n11764462.md#1" target="_blank">武汉爆发不明疫情 口罩板蓝根全抢光</a><br></h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/3/n11764462.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/GettyImages-1154839639-600x400-1-150x120.jpg" align ="left"></a>2019年年底，湖北武汉市华南海鲜批发市场爆发集体感染不明肺炎疫情，至今中共官方未说明此次感染的病毒类型。当地民众忧心SARS疫情重现，纷纷到药房购买口罩和板蓝根，部分店家已断货。
 
