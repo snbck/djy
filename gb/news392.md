@@ -26,16 +26,6 @@
 <tr><td><h3><a href="https://github.com/ublry267/djy/blob/master/gb/20/1/1/n11760402.md#1" target="_blank">陆言：医生被杀案是中共治下恶果的冰山一角</a><br></h3><a href="https://github.com/ublry267/djy/blob/master/gb/20/1/1/n11760402.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2013/12/1310271804532583-150x120.jpg" align ="left"></a>2019年12月4日北京民航医院急诊科接诊了一位95岁的老年女性，病史为脑梗塞后遗症。病人来院时呕吐、意识不清，随行家属拒绝一切检查，只要求“输液”。仅“输液”难以改善病情，于是家属恶意指责治疗有误，并开展了长达半个月的对医院的责骂，并拒绝医疗鉴定。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月01日 7:10 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ublry267/djy/blob/master/gb/20/1/1/n11759960.md#1" target="_blank">程晓容：惧《反渗透法》中共偷换焦点渲染恐怖</a><br></h3><a href="https://github.com/ublry267/djy/blob/master/gb/20/1/1/n11759960.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/420148-150x120.jpg" align ="left"></a>12月31日，台湾立法院会三读通过《反渗透法》，在台海两岸引发震荡。支持者表示欣慰，中共国台办和官媒进行抨击。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月01日 7:03 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ublry267/djy/blob/master/gb/20/1/1/n11760290.md#1" target="_blank">袁斌：香港花季少女之死告诉你中共有多邪</a><br></h3><a href="https://github.com/ublry267/djy/blob/master/gb/20/1/1/n11760290.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/1912010409301501-150x120.jpg" align ="left"></a>9月22日，香港15岁花季少女陈彦霖被发现浮尸海上后，警方放风是自杀，但种种疑点却使人怀疑是他杀。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月01日 6:42 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/ublry267/djy/blob/master/gb/20/1/3/n11764895.md#1" target="_blank">海网：龟蛇对鼠哭新愁</a><br></h3>长江见底现新洲，
-龟蛇对鼠哭新愁。
-不明肺炎从新冒，
-辟谣消声重新揪。
-瘟神似借新春运，
-恶党却蒙新盖头。
-非典悲剧如再演，
-恐有更多命白丢。
-天灭中共恩浩荡，
-魔拉陪葬雾浓稠。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月03日 2:12 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ublry267/djy/blob/master/gb/20/1/3/n11764415.md#1" target="_blank">林泉：香江之歌</a><br></h3>美丽香江城，雄伟狮子峰。
 九七落魔掌，从此无太平。
 中共施恶法，欲变红魔城。
@@ -75,5 +65,6 @@
 红朝内讧窝里斗
 暴政虐民积怨满......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月02日 3:43 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ublry267/djy/blob/master/gb/20/1/1/n11761144.md#1" target="_blank">王赫：习近平命运之择与三句古语</a><br></h3>又是一月一日。习近平的新年贺词，虽努力想有点个性，却依然是篇不敢直面现实的陈词滥调。古云：一元复始，万象更新。被党文化笼罩着的习，亟需找到“元”。找到“元”，自然“等闲识得东风面，万紫千红总是春”；找不到“元”，那就“望眼总为浮云遮”， 难免“身死人手，为天下笑”。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月02日 3:23 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/ublry267/djy/blob/master/gb/19/12/27/n11749214.md#1" target="_blank">李旭彤：挖掘五千年文明惊世宝藏（12）</a><br></h3>信息这个概念极大地简化了这个问题的讨论。对于一个基于近代科学的认知体系，有一个最基本的前提：认识者与被认识者之间要有信息的传递。在这个前提下的认知域主要受到三方面的限制：个体人接受信息，个体人对收到信息的处理，个体人之间信息的交换。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月01日 6:24 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ublry267/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/ublry267/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/ublry267/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/ublry267/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/ublry267/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/ublry267/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/ublry267/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/ublry267/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/ublry267/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/ublry267/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/ublry267/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/ublry267/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/ublry267/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ublry267/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
