@@ -2,7 +2,7 @@
 <tr><td><h3><a href="https://github.com/ublry267/djy/blob/master/gb/20/1/3/n11764556.md#1" target="_blank">【翻墙必看】分析：川普击碎中共的拖延术</a><br></h3><a href="https://github.com/ublry267/djy/blob/master/gb/20/1/3/n11764556.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2018/08/GettyImages-1024541870-320x200.jpg" align ="left"></a>大纪元每天为读者梳理翻墙必看的文章：
 
 1.周晓辉：川普下通牒 北京纠结三大难题
-国当地时间12月31日，美国总统川普（特朗普）发推表示：“我将在1月15.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月03日 12:30 PM					</td></tr>
+国当地时间12月31日，美国总统川普（特朗普）发推表示：“我将在1月15.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月03日 3:00 PM					</td></tr>
 <tr><td><h3><a href="https://github.com/ublry267/djy/blob/master/gb/20/1/2/n11763785.md#1" target="_blank">7.21警黑勾结 中共鼓励港警流氓化</a><br></h3><a href="https://github.com/ublry267/djy/blob/master/gb/20/1/2/n11763785.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/15e5f247f8707d13_ttl7dayRGj_tn0101-11-150x120.jpg" align ="left"></a>一名从警6年的港警披露，7.21元朗袭击事件发生后，港警高层不派警员到场，而一些同事看到袭击事件后拍手欢呼。他质疑警队可能与黑社会勾结，故意不派出警力，让黑社会“教训”港人，从而达到恐吓港人的目的。
 
 滥权、滥暴的港警，还得到中共当局的公开支持。港警的所谓“执法行为”也越来越流氓化，不但假扮抗议者从中捣乱、抓捕抗议者，而且还佩戴一模一样的“行动呼号”卡号.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月03日 9:53 AM							</td></tr>
