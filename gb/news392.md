@@ -17,6 +17,17 @@
 <tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/3/n11764938.md#1" target="_blank">新州：从违反程序看中共破坏司法公正</a><br></h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/3/n11764938.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2015/06/1506232146352039-150x120.jpg" align ="left"></a>“走法律程序”，这是中共执法者对当事人及家属经常说的一句话，这个法律程序就是执法机关和办案人必须遵守的法定办案顺序、步骤，目的是维护当事人的合法权益，监护执法者的职守节操，维护人类司法公正，确保所办案件能经得起历史检验，但大陆没有司法独立，执法者嘴上喊“走法律程序”，却案案都在违反法律程序，程序接连违法，何谈司法公正？......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月03日 2:52 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/3/n11764613.md#1" target="_blank">袁斌：“小康年”将到，访民为何吊死在信访局</a><br></h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/3/n11764613.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/1-8-600x367-150x120.jpg" align ="left"></a>2019年12月31日早晨5:45分，山西省柳林县退役老兵余海平被发现吊死在山西省信访局大门上，令人唏嘘！......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月03日 2:39 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/19/12/30/n11754433.md#1" target="_blank">俞晓薇：明慧新年祝福值得中国和世界深思</a><br></h3><a href="https://github.com/ffbns289/djy/blob/master/gb/19/12/30/n11754433.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/2019-12-28-1912210523254535-150x120.jpg" align ="left"></a>岁末，祝福与感恩热潮再现于明慧网——中国大陆及海外的法轮功学员恭祝法轮功创始人李洪志大师新年快乐。众多学员的亲属等各界人士也发出贺信，感谢李洪志大师、感谢法轮功。在道德下滑、纷争动荡的今日，法轮大法正在从根本上净化人心、净化世界，意义深远。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月03日 11:13 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/4/n11768243.md#1" target="_blank">理悟：别当郎中当推手</a><br></h3>
+
+病不轻呀中共党，身患绝症入膏肓。
+保党郎中忙急救，四个自信当良方。(注)
+说是自信难自信，贫血气短心发慌。
+不治之症空费神，猛药一攻见阎王。
+中共横竖都是死，万邦挥拳打共狼。
+天灭中共天意定，滔天罪恶债必偿。
+没治喽，中共党，神医妙手难还阳。
+黄泉路上怨哪个？自打自倒果自尝。
+识时务者为俊杰，倒.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月05日 4:53 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/4/n11768204.md#1" target="_blank">云鹤天：《七律?冬云》新解</a><br></h3>黑色天鹅漫天飞，
 犀牛成群皮毛灰。
 四面楚歌声声急，
@@ -78,13 +89,5 @@
 九七落魔掌，从此无太平。
 中共施恶法，欲变红魔城。
 全民反送中，民众已觉醒。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月03日 11:22 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/3/n11764382.md#1" target="_blank">关乐：赞香港元旦百万和平抗暴大游行</a><br></h3>二零二零元旦，
-上街再破百万。
-隆冬春潮驱寒，
-中南海冰裂颤。
-冰刀半途腰斩，
-只会推波助澜。
-挑事造事滥抓，
-港府泥潭深陷。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月03日 8:34 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/ffbns289/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/ffbns289/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/ffbns289/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/ffbns289/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/ffbns289/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/ffbns289/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/ffbns289/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/ffbns289/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/ffbns289/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/ffbns289/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/ffbns289/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/ffbns289/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ffbns289/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
