@@ -19,6 +19,16 @@
 <tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/1/n11761363.md#1" target="_blank">【名家专栏】中共式审查制度正向世界扩散</a><br></h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/1/n11761363.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/88182999-1200x698-150x120.jpg" align ="left"></a>中国共产党痛恨信息的自由传播和思想的自由表达。中共的领导人知道，他们的继续存在依赖于他们扼杀个人意志、政治表达和人权的能力——而所有这些思想和权利都是香港人正在竭力争取的。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月02日 7:58 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/2/n11761870.md#1" target="_blank">程晓容：百万港人元旦游行 2020抗共主题延续</a><br></h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/2/n11761870.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/2001010413102188-1-150x120.jpg" align ="left"></a>维多利亚公园和街头人山人海，口号声不绝于耳。反送中运动历时半年多，元旦大游行再次冲击中共政权，开启了2020抗共潮的序幕。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月02日 6:17 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/2/n11762141.md#1" target="_blank">袁斌：中共恐惧的“规模性失业潮”正扑面而来</a><br></h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/2/n11762141.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/04/dfed3f93b4d5b2bfcee7e588808f345c-150x120.jpg" align ="left"></a>2019年12月10日至12日，被官媒称为“定调2020年经济工作”的中共经济工作会议在北京举行。如同去年底的中共经济工作会议一样，这次会议继续强调“六稳”，即稳就业、稳金融、稳外贸、稳外资、稳投资、稳预期。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月02日 2:41 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/4/n11767432.md#1" target="_blank">振玉：寄语台湾</a><br></h3>南歌子.寄愿
+宝岛清清水，
+蓬湖湛湛湾。
+海蓝沙净自由天，
+留得一汪澄澈在人间。
+
+落日云霞美，
+晨风草木鲜。
+勿亲中共染腥膻，
+好待少年圆梦玉山边。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月04日 3:20 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/4/n11767394.md#1" target="_blank">理悟：小康在何方</a><br></h3>党领脱贫在路上，
 不落一人奔小康。
 二零二零决胜年，
@@ -68,12 +78,5 @@
 思圄破残马列里，道惑倿嬖左右中；
 一路撒金不嫌远，阻川徘徊应旋踵；
 台港自由是典范，苏联专制成警钟。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月02日 2:00 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/2/n11761994.md#1" target="_blank">伍新：贺中华民国《反渗透法》通过</a><br></h3>二零一九年末，反渗透法通过。
-似乎势不可遏，又像拖无可拖。
-此法那么难产，原因值得捉摸。
-担心影响交流，渗透实被淡漠。
-忧患本党得失，党争压倒一切。
-无论什么颜色，红都渗透脑壳。
-渗透渗透什么？最毒正是这个。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月02日 1:06 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/ffbns289/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/ffbns289/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/ffbns289/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/ffbns289/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/ffbns289/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/ffbns289/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/ffbns289/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/ffbns289/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/ffbns289/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/ffbns289/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/ffbns289/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/ffbns289/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ffbns289/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
