@@ -22,6 +22,7 @@
 公开信由无锡陶国芬发起，截至目前已有蒋子春、周荣清、毛黎惠、黄菡清…等二十六人签名联署支持。目前联署活动还在进行中。
 给新市委书记黄钦的公开信
 公开信.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月05日 6:45 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/5/n11769668.md#1" target="_blank">14名区议员及公民党议员拒出席张建宗见面会</a><br></h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/5/n11769668.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/15e6f9a453de05fc_ttl7dayphq_IMG_0240-150x120.jpeg" align ="left"></a>1月4日，公民党全体区议员公开表示将拒绝出席张建宗主持的单向式训话场合，同时要求政府官员应邀出席各个区议会的会议，接受区议员质询。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月05日 7:46 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/3/n11766694.md#1" target="_blank">【翻墙必看】中共官员自相残杀的背后</a><br></h3>可以肯定的说，只要共产党存在一天，中共从高层到底层官员的自相残杀就不会中止，因为除了他们脑中被灌输的斗争哲学外，更与共产一党专制对暴力格外的推崇有关。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月04日 9:30 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/4/n11767938.md#1" target="_blank">广西南宁一幼儿园老师虐童</a><br></h3>1月3日，网络上传出一段广西南宁市一幼儿园教师虐童视频，引起外界关注。
 
@@ -33,12 +34,6 @@
 <tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/5/n11768811.md#1" target="_blank">因手机被没收 西安高中生将老师杀害</a><br></h3>1月2日，陕西省西安市第66中学发生一起刑事案件，该校女教师周某娟被高三学生李某伤害致死。据了解，李某因在晚自习期间玩手机，被值班老师金某发现并予以没收。李某两次索要手机无果，在第三次进到办公室后，将另一名老师周某娟伤害致死，之后李某翻出学校大门逃离。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月05日 1:17 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/5/n11768891.md#1" target="_blank">四川青样一住宅天然气泄漏起火 地面都震动</a><br></h3>1月4日深夜，四川成都青羊区一住宅小区天然气泄漏起火，并伴随爆炸声，导致1人受伤。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月05日 2:34 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/5/n11768961.md#1" target="_blank">广东新生女婴被装袋挂公厕门把手 父母失踪</a><br></h3>1月1日，广东省梅州市一个公厕里，有民众发现厕所的门把手上挂着一袋东西，里面竟装着一个熟睡的小女婴。袋中还有一件成人衣服，但没有任何关于女婴信息的字条。经检查，女婴没有任何异常，身体也无畸形情况。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月05日 3:00 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/5/n11768620.md#1" target="_blank">【翻墙必看】恐怖组织头子被击毙细节曝光</a><br></h3>大纪元每天为读者梳理翻墙必看的文章：
-
-1.伊朗将军被击毙细节：最后36小时露行踪
-伊朗第二号实权人物卡西姆?索莱马尼（Qassim Suleimani，又译苏雷曼尼）被美国无人机炸死。索莱马尼生前行事隐秘，美方是如何对他进行监控获得他的行踪，最终对他进行精准打击的呢？
-
-2.港中联办主任遭撤换 新任骆惠宁有.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月05日 8:40 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/5/n11768943.md#1" target="_blank">安徽淮南男子杀害女友藏尸行李箱 被判死刑</a><br></h3>近日，安徽淮南男子刘某杀害女友藏尸行李箱一案宣判，刘某一审被判处死刑。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月05日 4:55 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/5/n11769417.md#1" target="_blank">因应武汉肺炎? 香港启动“严重应变级别”</a><br></h3>武汉爆发疑似萨斯疫情，大陆社交媒体疯传后官方再补发公告，短短三天个案从27例飙升44例。香港近期到过武汉后发热、呼吸道感染及肺炎症状入院治疗有8人。港澳应对升级，香港启动“严重应变级别”。专家批北京政府处理失当，后果严重。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月05日 6:14 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ffbns289/djy/blob/master/gb/20/1/5/n11769311.md#1" target="_blank">新年刚过 陕西连发两起杀人案 致4死1伤</a><br></h3>2020年新年刚过，陕西传出两起杀人案。1月2日，陕西西安市第66中学女教师周某娟被高三学生李某伤害致死。1月4日，汉中市宁强县，男子徐某林将王某、雷某杰杀死，将9岁女童王某彤致伤。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月05日 6:19 PM			</td></tr>
