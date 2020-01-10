@@ -4,7 +4,6 @@
 
 一、中南海一个大秘称，现在习近平举步维艰，进退两难，根本原因在于其没有一个强大睿智的执政班底，只有一帮专事逢迎的庸才聚集在其身边，而那些具备实际执政能力的团派大员，个个心灰意懒，出工不出力。这也是近来中共内政、外交昏招迭出的原因。.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月11日 5:50 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/10/n11783244.md#1" target="_blank">颜丹：“17人未脱贫”假在哪儿？</a><br></h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/10/n11783244.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/6fea4c65ly1g764lwn81jj20qn0k0e81-600x400-150x120.jpg" align ="left"></a>心安理得的将人逼入绝境、甚至把人逼死，这不仅是没责任、没善心，而是人性全无。这才是培养无数贪官的中共的党性，即没有人性，只有魔鬼般的邪恶本性。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月11日 5:27 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/10/n11783273.md#1" target="_blank">丹丹：关于香港“明日大屿愿景”</a><br></h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/10/n11783273.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/20181011-HUAMING-HONGKONG-01-600x400-150x120.jpg" align ="left"></a>“明日大屿愿景”计划旨在纾缓本港中长期土地供应短缺的问题，改善本港生活环境，但发展局于今年4月公布“明日大屿愿景”计划工程开支估算后，社会各界便开始聚焦于工程所需的成本。“明日大屿愿景”计划工程单单是第一期1000公顷填海项目的开支，估计要动用6240亿元，包括交椅洲人工岛预料造价最少2,560亿元、欣澳、龙鼓滩填海及.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月11日 5:07 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/10/n11783194.md#1" target="_blank">王友群：王立强曝光中共渗透台湾又添新证据</a><br></h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/10/n11783194.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/420148-600x400-150x120.jpg" align ="left"></a>台湾2020年总统大选最后冲刺前夕，澳洲、台湾众多媒体报道了国民党副秘书长蔡正元与中国商人孙天群，威胁利诱前中共间谍王立强，企图影响台湾大选结果的惊人内幕。消息一出，在台湾和海外，再次引发强烈反响。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月11日 4:14 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/10/n11783128.md#1" target="_blank">沁芳：“依法治国”下的强制采血</a><br></h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/10/n11783128.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/3-23-1-600x400-150x120.jpg" align ="left"></a>在冠冕堂皇的“依法治国”口号下，中共对民众人身权利的侵犯，监控手段的运用却越发登峰造极。摄像头星罗棋布，大数据，人脸识别，姿态识别等技术的滥用，强制采集个人信息等行为屡见不鲜，甚至出现强行采血的疯狂行为。有法不依，执法犯法的行径，在这个中共号称“人权最好时期”在不断上演。下面我们就一起看看看明慧网近期登出的几个对法轮功.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月11日 2:53 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/10/n11782895.md#1" target="_blank">夏小强：中共操控台湾大选失败 蔡英文可能将大胜</a><br></h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/10/n11782895.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/20191229PHO0058l-150x120.jpg" align ="left"></a>中共对台湾总统选举的干预和操控从未停止过。随着台湾总统大选日的临近，民调显示中共支持的国民党候选人韩国瑜与蔡英文的差距不断加大，特别是三场总统候选人政见会和一场辩论会结束后，国民党翻盘的机会越来越少。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月11日 12:54 AM			</td></tr>
@@ -47,5 +46,18 @@
 炎黄伤重血腥枷，
 乾坤若扫幽灵后，
 谁不乘风惬晚霞？......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月09日 6:34 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/8/n11776340.md#1" target="_blank">祝君安：一剪梅?新年新气象</a><br></h3>赤匪运尽人离走
+俊杰三退
+幸登方舟
+迷中谁犹恋红楼
+劫难来时
+陪葬魔兽
+
+善者欣喜恶人愁
+天降九评
+振聋神州
+中美贸谈改结构
+香江怒吼
+台庆自由......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月08日 2:25 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/fcjmkl2375/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fcjmkl2375/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
