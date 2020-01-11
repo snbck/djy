@@ -30,9 +30,18 @@
 <tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/8/n11777810.md#1" target="_blank">颜丹：人均一万美元与人手一张选票的价值</a><br></h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/8/n11777810.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/90728153626794-600x400-150x120.jpg" align ="left"></a>中共普大喜奔的“小康社会收官之年”已到，但并未看到官媒展示什么“小康”成果，取而代之的，却在强调另外一套说辞。就在新年第一天，各路喉舌就开始纵情欢呼，高喊“中国人均GDP将迈上1万美元台阶”；“成中高等收入国家”。
 
 这套说辞中最经典的，就是那个“将”字，意即“现在还未达到”。用中共的话来讲，只是“预计2019年中.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月09日 4:13 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/8/n11777757.md#1" target="_blank">张菁：大陆离婚率高启 半边天思想是根源</a><br></h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/8/n11777757.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/20190130-Chi-Jin-Family-Lawyers-3-01-150x120.jpg" align ="left"></a>只有找回道德，走回传统，相信“姻缘天定”，破除“人定胜天、女人顶半边天”的荒谬思想，才能从传统文化中寻回丢失的自我，重建一个新的和谐世界。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月09日 3:51 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/1/n11760806.md#1" target="_blank">为中共效力的红色特工 后来怎么样了（3）</a><br></h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/1/n11760806.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2011/06/1011021948282054_1-150x120.jpg" align ="left"></a>刘仁，1927年即加入中共，曾在内蒙古、张家口、北平等地从事秘密工作。1935年被派往苏联受训，回国后是北京地下党的主要负责人。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月09日 2:33 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/11/n11783719.md#1" target="_blank">陈达：天灭中共还剩几步棋？——有感于伊朗对美“报复戏”</a><br></h3>正邪大战激，地球村分离。大陆红山寨，美国世警局。
+<tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/11/n11783854.md#1" target="_blank">王赫：中共政局—三病缠身 死前丧智</a><br></h3>2019，中共是火上烤的一年，被烤得神志不清、惊慌失措、奄奄一息，政局全面恶化：草木皆兵，“向左转”浊浪拍岸，社会控制极端化；当局左支右绌，进退失措，几近丧失决策能力；强化“党领导一切”，刀光剑影之间，内斗呈现新态势，已末路不远。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月11日 11:01 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/11/n11783874.md#1" target="_blank">海网：“空心朽”演“核心秀”</a><br></h3>喊罢政治局看齐，
+再查常委会足迹。
+一尊惟一尊呼吁，
+核心被空心疏离。
+中国共产党亡石①，
+伴有古枫演哑剧②。
+哑剧今上中南海，
+红朝就剩一张皮。
+三退已近三亿半，
+未退好人莫再迷。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月11日 10:49 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/11/n11783719.md#1" target="_blank">陈达：天灭中共还剩几步棋？</a><br></h3>正邪大战激，地球村分离。大陆红山寨，美国世警局。
 
 世警每集结，往往遭伏击。萨达姆捣乱，拉登飞机袭。
 
