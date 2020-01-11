@@ -28,6 +28,7 @@
 
 中共官媒在报道中明确表示，上海“成就‘最有安全感的城.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月10日 2:31 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/9/n11780343.md#1" target="_blank">王赫：川普三件事定调2020年</a><br></h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/9/n11780343.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/GettyImages-1191120378-150x120.jpg" align ="left"></a>送走戏码分外精彩的2019年，2020年历史大戏的剧情又将如何上演呢？岁末年初，川普政府所做的三件事情为2020年定下基调。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月10日 1:02 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/11/n11785344.md#1" target="_blank">文静：“舆情引导”员把自己引向了险境</a><br></h3>共产党就是用各种手段维护他的统治，而它的这些手段都是把好人变成坏人。而坏人是没正义、没气节的，只要许以利益或恐吓，什么事都会去干，这样的人最便于中共的统治。希望你们每个人不要被它引诱成为坏人，帮其行恶，最后也成了罪人，把自己引向了危险的境地。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月11日 9:35 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/11/n11783854.md#1" target="_blank">王赫：中共政局——三病缠身 死前丧智</a><br></h3>2019，中共是火上烤的一年，被烤得神志不清、惊慌失措、奄奄一息，政局全面恶化：草木皆兵，“向左转”浊浪拍岸，社会控制极端化；当局左支右绌，进退失措，几近丧失决策能力；强化“党领导一切”，刀光剑影之间，内斗呈现新态势，已末路不远。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月11日 11:01 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/11/n11783874.md#1" target="_blank">海网：“空心朽”演“核心秀”</a><br></h3>喊罢政治局看齐，
 再查常委会足迹。
@@ -56,13 +57,5 @@
 
 预言如此准确，我们可以这样理解，历史其实就是安排好的一场戏，在一幕幕的上演。从预言的精准无误，我们也可以说一切皆有定数。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月10日 7:30 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/9/n11780429.md#1" target="_blank">【名家专栏】美国公民教育与对未来的希望</a><br></h3>美国最高法院首席大法官约翰·罗伯茨（John Roberts）在其年终报告中指出，美国许多学校都出了问题，他写道：“我们已经将民主视为理所当然，公民教育已被淘汰。”......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月10日 3:36 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/9/n11779632.md#1" target="_blank">振玉：炎黄巨难奇耻</a><br></h3>一片笙歌掩残杀，
-红朝魔爪碎中华。
-世风日下江河水，
-人性荒芜瀚海沙。
-华夏悲深马恩胯，
-炎黄伤重血腥枷，
-乾坤若扫幽灵后，
-谁不乘风惬晚霞？......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月09日 6:34 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/fcjmkl2375/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fcjmkl2375/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
