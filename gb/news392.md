@@ -22,7 +22,15 @@
 <tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/10/n11783194.md#1" target="_blank">王友群：王立强曝光中共渗透台湾又添新证据</a><br></h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/10/n11783194.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/420148-600x400-150x120.jpg" align ="left"></a>台湾2020年总统大选最后冲刺前夕，澳洲、台湾众多媒体报道了国民党副秘书长蔡正元与中国商人孙天群，威胁利诱前中共间谍王立强，企图影响台湾大选结果的惊人内幕。消息一出，在台湾和海外，再次引发强烈反响。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月11日 4:14 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/10/n11783128.md#1" target="_blank">沁芳：“依法治国”下的强制采血</a><br></h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/10/n11783128.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/3-23-1-600x400-150x120.jpg" align ="left"></a>在冠冕堂皇的“依法治国”口号下，中共对民众人身权利的侵犯，监控手段的运用却越发登峰造极。摄像头星罗棋布，大数据，人脸识别，姿态识别等技术的滥用，强制采集个人信息等行为屡见不鲜，甚至出现强行采血的疯狂行为。有法不依，执法犯法的行径，在这个中共号称“人权最好时期”在不断上演。下面我们就一起看看看明慧网近期登出的几个对法轮功.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月11日 2:53 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/10/n11782895.md#1" target="_blank">夏小强：中共操控台湾大选失败 蔡英文可能将大胜</a><br></h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/10/n11782895.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/20191229PHO0058l-150x120.jpg" align ="left"></a>中共对台湾总统选举的干预和操控从未停止过。随着台湾总统大选日的临近，民调显示中共支持的国民党候选人韩国瑜与蔡英文的差距不断加大，特别是三场总统候选人政见会和一场辩论会结束后，国民党翻盘的机会越来越少。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月11日 12:54 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/10/n11782184.md#1" target="_blank">陈思敏：中共金融委为何高度关注中小银行</a><br></h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/10/n11782184.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/12/15e13d247e6d951f_ttl7dayE3U_15e13ae7ef517ed4_ttl7dayPR5_2d1382977f12a3fe-150x120.jpg" align ="left"></a>1月7日，中共金融稳定发展委员会（金融委）开年首次会议，刘鹤亲自主持，重点提2件事：中小企业融资问题以及中小银行资本补充。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月10日 10:01 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/12/n11787463.md#1" target="_blank">理悟：中共不是中国</a><br></h3>中华盛名四海扬，神传五千好辉煌。
+四大发明福人类，儒释道兴滋各帮。
+崇尚仁义礼智信，朝代更替祖炎黄。
+泱泱大国神州地，屹立东方万国仰。
+不幸袭来幽灵鬼，文明古国一朝毁。
+中共篡政弄红朝，与我华夏传统违。
+伪政邪毒七十载，几代洗脑精神摧。
+偷梁换柱混视听，不知党国两泾渭。
+错把中共当中国，党附国体使淫威。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月12日 5:05 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/12/n11787425.md#1" target="_blank">陈思敏：上海银行爆大雷 官场震动</a><br></h3>1月10日消息，上海银行副行长、上银国际董事长黄涛被举报，涉嫌行向深圳宝能集团违法放贷265亿元。举报人是上海衡源、上海申鑫老板徐国良。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月12日 4:54 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fcjmkl2375/djy/blob/master/gb/20/1/12/n11787398.md#1" target="_blank">念贲：没有选票  我们去奋斗去努力</a><br></h3>海峡两岸，
 说远不远、说近不近，
