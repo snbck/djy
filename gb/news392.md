@@ -40,7 +40,7 @@
 <tr><td><h3><a href="https://github.com/zdqyi2905/djy/blob/master/gb/20/1/13/n11789989.md#1" target="_blank">程晓容：60国贺蔡英文胜选 中共输在哪里？</a><br></h3><a href="https://github.com/zdqyi2905/djy/blob/master/gb/20/1/13/n11789989.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/49fb45959fb1153b0c445be73d68033d-1-150x120.jpg" align ="left"></a>国际社会对蔡英文的祝贺即是对自由民主的呼应，对台湾人民勇气的赞赏。各方喝彩汇成一个强大的信号，直击中共。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月13日 5:03 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/zdqyi2905/djy/blob/master/gb/20/1/15/n11796267.md#1" target="_blank">夏林：中共新年挨的两记重拳</a><br></h3>中共从2019年起，明显走霉运。而2020年刚到，中共又意外地被重击两拳。左钩拳是美国政府斩首伊朗二号恐怖分子苏莱曼尼；右钩拳是台湾大选，对中共强硬的蔡英文大胜。
 
-去年12月30日发生了有伊朗恐怖分子苏莱曼尼参与策动的包围美国驻伊拉克使馆事件。美国政府迅速平息这一事件之后，目标锁定了在后面参与的伊朗重要人物苏莱曼.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月16日 5:06 AM			</td></tr>
+去年12月30日发生了有伊朗恐怖分子苏莱曼尼参与策动的包围伊拉克驻美国大使馆事件。美国政府迅速平息这一事件之后，目标锁定了在后面参与的伊朗重要人物苏莱.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月16日 5:06 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/zdqyi2905/djy/blob/master/gb/20/1/15/n11794273.md#1" target="_blank">祝君安：妖共畜心剖</a><br></h3>保卫苏维埃，国难复独裁
 外蒙媚妖主，民国驱海台
 民主逐鹿去，专制伴谎来
