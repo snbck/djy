@@ -32,7 +32,18 @@
 <tr><td><h3><a href="https://github.com/zdqyi2905/djy/blob/master/gb/20/1/12/n11788664.md#1" target="_blank">东方觉：年终奖竟是“免裁券” “花式裁员”伤人心</a><br></h3><a href="https://github.com/zdqyi2905/djy/blob/master/gb/20/1/12/n11788664.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/903151931542054-600x400-1-150x120.jpg" align ="left"></a>已至年末，许多员工盼望能领到一份年终奖金，回家团圆，过个平安年。可是希望越大，失望越大，现在年终奖不仅越来越“缩水”，而且变得越来越“奇葩”。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月13日 8:03 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/zdqyi2905/djy/blob/master/gb/20/1/12/n11788643.md#1" target="_blank">王赫：习近平可识“桃花源中人”？</a><br></h3><a href="https://github.com/zdqyi2905/djy/blob/master/gb/20/1/12/n11788643.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/GettyImages-1172509081-600x400-150x120.jpg" align ="left"></a>1月8日，中共召开“不忘初心、牢记使命”主题教育总结大会，习近平在讲话中向全党喊话：与时俱进，不能做“不知有汉，无论魏晋”的桃花源中人。习近平这里引用“桃花源中人”一词，完全是对这个词的错解、误用。当然，这也不能全怪习近平，因为这个词在中共党史中有特定的含义，毛、邓都用过，习也是照搬。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月13日 7:24 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/zdqyi2905/djy/blob/master/gb/20/1/12/n11788200.md#1" target="_blank">张林：从波斯帝国到让全世界嘲笑的当代伊朗</a><br></h3><a href="https://github.com/zdqyi2905/djy/blob/master/gb/20/1/12/n11788200.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/000_1NF0C3-1-600x400-1-1-1-150x120.jpg" align ="left"></a>伊朗将军苏里曼尼是联合国通辑的恐怖分子，美国将其斩首之后，伊朗统治集团既绝望又恐惧，演出了一幕幕丑剧。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月13日 5:57 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/zdqyi2905/djy/blob/master/gb/20/1/12/n11787934.md#1" target="_blank">李靖宇：台湾大选 中共成蔡英文“最大助选员”</a><br></h3><a href="https://github.com/zdqyi2905/djy/blob/master/gb/20/1/12/n11787934.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/49fb45959fb1153b0c445be73d68033d-150x120.jpg" align ="left"></a>事实上，民进党大胜、国民党惨败的主要原因即是台湾大选背后的“中共因素”。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月12日 9:18 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/zdqyi2905/djy/blob/master/gb/20/1/15/n11794273.md#1" target="_blank">祝君安：妖共畜心剖</a><br></h3>保卫苏维埃，国难复独裁
+外蒙媚妖主，民国驱海台
+民主逐鹿去，专制伴谎来
+企主随伞降，右派应花开
+知青迷桃源，红楼斗开怀
+开放韬晦日，坦克辗栋材
+国资揽腰袋，民企割韭菜
+肠肥欲难填，贪眼觑世界
+王莽恭谦秀，得志便活摘
+保党吹和谐，愚民垄媒介
+娼盛德何在，梦杳珠光衰
+虎啸庙堂荒，鹅飞妖共哀......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月15日 1:26 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/zdqyi2905/djy/blob/master/gb/20/1/13/n11791371.md#1" target="_blank">【读者投书】中共对穆斯林的迫害成扩大趋势</a><br></h3>在经历新疆2009年“乌鲁木齐七五事件”后，中共开始对新疆穆斯林实行长达10年的高压政治迫害政策。对新疆各少数族大批量的无辜善良的穆斯林信徒进行大规模迫害，实行宁枉勿纵的政策——宁可冤枉，也不放过。近几年对穆斯林的迫害更是到了疯狂的地步，已经从新疆地区迅速扩开到全国，对全国所有信仰伊斯兰教的民族进行迫害。迫害人数扩大化.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月14日 6:23 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/zdqyi2905/djy/blob/master/gb/20/1/13/n11791226.md#1" target="_blank">超薄微热管：可携式电子产品散热应用</a><br></h3>小型化和高密度封装电子产品，需要紧凑且具高效散热部件。扁平超薄微热管非常适合高功率和有限空间散热，目前已经广泛研究并应用在可携式电子产品。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月14日 4:45 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/zdqyi2905/djy/blob/master/gb/20/1/13/n11790392.md#1" target="_blank">中立：中共与民为敌 期望台湾民主统一大陆</a><br></h3>中共以一党极权独裁，拒绝民主，拒绝民意，实乃以人民为敌，以民主自由为敌。北京当局图谋以巩固和加强中共长存的的动机为最终目的，就是巩固中共一党长期极权独裁。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月13日 6:57 PM			</td></tr>
