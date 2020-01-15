@@ -36,7 +36,7 @@
 1.制裁香港官员 美议员承诺向国务院提交名单
 在香港反送中运动中，港府及港警持续镇压抗争的市民，面临国际社会的制裁。美国国会及行政当局中国委员会（CECC）主席麦高文及联合主席鲁比奥承诺，将向美国务院提交制裁香港官员名单。英国上议院议员亦撰文，要求英政府先制裁警队高层及相关官员。
 
-2.港男纪律部队坠楼过程被.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月15日 9:01 PM							</td></tr>
+2.港男纪律部队坠楼过程被.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月15日 9:50 PM							</td></tr>
 <tr><td><h3><a href="https://github.com/zdqyi2905/djy/blob/master/gb/20/1/14/n11792093.md#1" target="_blank">广东高层多空降 分析：北京忌惮地方势力</a><br></h3>最近，中共广东正在举行政协、人大会议。此前，广东官场人事已进行了一轮调整。据港媒统计，目前广东省“四套班子”中共有21名高层官员，但本土官员只剩3人。分析认为，随着京官等空降增多，广东本土派加速式微。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月14日 4:49 PM							</td></tr>
 <tr><td><h3><a href="https://github.com/zdqyi2905/djy/blob/master/gb/20/1/14/n11791643.md#1" target="_blank">贵州前副省长怕被查 四千瓶茅台酒倒马桶</a><br></h3>日前，中共贵州前省委常委、副省长王晓光贪腐细节被曝光。据报导，他的家中堆满高达4000多瓶茅台酒。当他听到风声自己要被查时，他按年份把这些酒分批倒入自家马桶。
 
