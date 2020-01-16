@@ -41,7 +41,15 @@
 <tr><td><h3><a href="https://github.com/qdbzyr225/djy/blob/master/gb/20/1/13/n11791133.md#1" target="_blank">颜丹：台湾大选结束 中共气急败坏为哪般？</a><br></h3><a href="https://github.com/qdbzyr225/djy/blob/master/gb/20/1/13/n11791133.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/2001110558591501-600x400-1-1-150x120.jpg" align ="left"></a>台湾大选刚刚落下帷幕，针对“如何看待台湾地区的这次选举”，中共喉舌新华社第一时间发表评论，称“选举很大程度上受到外部暗黑力量的操控”。文章说，蔡英文“倚美反中”；因此“西方外部政治势力公然介入台湾选举，为牵制、遏制中国大陆，阻止两岸走近走亲”。
 
 这场选举到底有没有“受到外部力量的操控”，我们不妨先来听听蔡英文获选.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月14日 3:28 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/qdbzyr225/djy/blob/master/gb/20/1/13/n11791025.md#1" target="_blank">王友群：蔡英文胜选获国际赞赏的五个原因</a><br></h3><a href="https://github.com/qdbzyr225/djy/blob/master/gb/20/1/13/n11791025.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/000_1NM6GV-1-600x400-1-150x120.jpg" align ="left"></a>1月11日，蔡英文以台湾直选总统史上最高票数成功连任，美国等70多个国家、国际组织的政要纷纷表示热烈祝贺。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月14日 2:56 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/qdbzyr225/djy/blob/master/gb/20/1/16/n11797512.md#1" target="_blank">吐为快：让领导先走</a><br></h3>党国栋梁宿，恐怖诸领袖
+身娇命更优，心毒脸特厚
+先天下之乐，后天下之忧
+包星倾城秀，贪财第一流
+残民酷无比，破坏强中手
+活摘手不抖，乱港狠不羞
+皇天岂无眼，忍让魔优游
+川普截世流，规则勇改涂
+反恐黄泉路，让领导先走......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月16日 3:54 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/qdbzyr225/djy/blob/master/gb/20/1/15/n11796267.md#1" target="_blank">夏林：中共新年挨的两记重拳</a><br></h3>中共从2019年起，明显走霉运。而2020年刚到，中共又意外地被重击两拳。左钩拳是美国政府斩首伊朗二号恐怖分子苏莱曼尼；右钩拳是台湾大选，对中共强硬的蔡英文大胜。
 
 去年12月30日发生了有伊朗恐怖分子苏莱曼尼参与策动的包围美国驻伊拉克使馆事件。美国政府迅速平息这一事件之后，目标锁定了在后面参与的伊朗重要人物苏莱曼.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月16日 5:06 AM			</td></tr>
