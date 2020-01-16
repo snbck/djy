@@ -38,7 +38,7 @@
 <tr><td><h3><a href="https://github.com/zsifxm298/djy/blob/master/gb/20/1/13/n11791261.md#1" target="_blank">袁斌：向往自由的大陆人为何为台湾大选干杯</a><br></h3><a href="https://github.com/zsifxm298/djy/blob/master/gb/20/1/13/n11791261.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/PO_X5522-600x400-1-1-150x120.jpg" align ="left"></a>万众瞩目的台湾总统大选于1月11日晚间落下帷幕。
 
 之前，尽管中共利用各种渗透手段，阻击民进党候选人蔡英文，给国民党候选人拉票，甚至出钱让大陆的台湾人回台湾给国民党候选人投票，企图让亲中共的国民党候选人胜选，但事与愿违，对中共持强硬态度的蔡英文不但以领先韩国瑜近265万张票的高票数成功获得连任，并一举创下了814..........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月14日 12:52 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/zsifxm298/djy/blob/master/gb/20/1/13/n11791474.md#1" target="_blank">何清涟：2020台湾大选——救亡压倒一切</a><br></h3><a href="https://github.com/zsifxm298/djy/blob/master/gb/20/1/13/n11791474.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/49fb45959fb1153b0c445be73d68033d-1-150x120.jpg" align ="left"></a>台湾民进党蔡英文胜选，获得连任。如同2016年那次一样，这次仍然是借助危机意识驱动下的民意。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月14日 8:08 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/zsifxm298/djy/blob/master/gb/20/1/16/n11798400.md#1" target="_blank">中华民国台湾 ：民主进程看过来</a><br></h3>2020年元月11日，蔡英文连选连任，当选中华民国台湾第十五任总统。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月16日 10:44 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/zsifxm298/djy/blob/master/gb/20/1/16/n11797687.md#1" target="_blank">金浴凤：春之歌</a><br></h3>蟾害未完了，处处有虎啸；
 善恶必有报，打虎知多少。
 
