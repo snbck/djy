@@ -633,30 +633,6 @@
 <tr><td><h3><a href="https://github.com/qdbzyr225/djy/blob/master/gb/20/1/13/n11790901.md#1" target="_blank">一年倒闭近2万家 大陆游戏公司陷窘境</a><br></h3><a href="https://github.com/qdbzyr225/djy/blob/master/gb/20/1/13/n11790901.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2010/05/1005011931022198-150x120.jpg" align ="left"></a>大陆游戏公司2019年倒闭近2万家，比2018年增加了92.79%。大陆游戏公司生存艰难的背后，存在当局内容审查和行业抄袭成风导致声誉扫地的窘况。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月14日 2:15 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/qdbzyr225/djy/blob/master/gb/20/1/13/n11790922.md#1" target="_blank">十家九亏 大陆去年超3000奶茶企业倒闭</a><br></h3><a href="https://github.com/qdbzyr225/djy/blob/master/gb/20/1/13/n11790922.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/Untitled-2-1-150x120.gif" align ="left"></a>大陆奶茶行业最新的热门话题不是“又冒出一个新网红”，而是“你的奶茶店倒闭了没”。有数据显示，截至11月底，2019年吊销、注销的企业共3,478家，能盈利的店铺不到10%。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月14日 2:08 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/qdbzyr225/djy/blob/master/gb/20/1/13/n11790992.md#1" target="_blank">赞神韵世界超一流 吉他演奏员欣喜圆梦</a><br></h3><a href="https://github.com/qdbzyr225/djy/blob/master/gb/20/1/13/n11790992.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/200113092336100083-150x120.jpg" align ="left"></a>“了不起，太了不起了！”吉他演奏家花立纯（HANADATI ZYUNN）看了神韵演出后，非常惊喜，他赞叹神韵舞蹈高超，天幕神奇，不但是世界一流，而且是“超一流”的演出，他直呼：“实在是太棒了！我要让身边的人都来看神韵。”......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月14日 1:33 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/qdbzyr225/djy/blob/master/gb/20/1/13/n11790965.md#1" target="_blank">2019旧金山湾区房价 12月份销售一览（上）</a><br></h3><a href="https://github.com/qdbzyr225/djy/blob/master/gb/20/1/13/n11790965.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/12.49.54-150x120.png" align ="left"></a>以下表格即是2019年12月份，湾区部分城市的房产销售一览。
-注：房型CO是康斗，DE是独立房
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-继续看房市分析：
-12月再小跌 2019旺季不旺，淡季不淡
-
-资料来源：旧金山、南湾、东湾MLS
-以上数据由星河地产（Starriver Rea.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月14日 1:19 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/qdbzyr225/djy/blob/master/gb/20/1/16/n11796567.md#1" target="_blank">推动灾后复苏 南澳州长如期出访日本新加坡</a><br></h3>南澳州长马歇尔（Steven Marshall）将亲自出任旅游厅长，领导整个袋鼠岛和阿德莱德山的山火灾后经济复苏。受灾区民众希望他对当地仍面向游客开放的消息多做宣传，而这正是马歇尔即将出访日本和新加坡所要做的事情。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月16日 8:51 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/qdbzyr225/djy/blob/master/gb/20/1/16/n11796564.md#1" target="_blank">阿德莱德1月份油价全澳第二低</a><br></h3>2020年1月份，除布里斯班之外，阿德莱德的汽油价格比澳洲其它州府都便宜。而就去年的12月份，这里的无铅汽油价格在澳洲大陆居于高位。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月16日 8:47 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/qdbzyr225/djy/blob/master/gb/20/1/16/n11796554.md#1" target="_blank">南澳乳腺癌扫描自付费用全澳最高</a><br></h3>南澳妇女在乳腺癌扫描上须支付的自付费用最高。最新数据显示，不同州的扫描成本差异很大，这促使人们呼吁提高透明度。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月16日 8:43 AM			</td></tr>
