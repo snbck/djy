@@ -26,26 +26,14 @@
 <tr><td><h3><a href="https://github.com/zsifxm298/djy/blob/master/gb/20/1/15/n11794615.md#1" target="_blank">陈思敏：中美签署第一阶段贸协 中共2点惨败</a><br></h3><a href="https://github.com/zsifxm298/djy/blob/master/gb/20/1/15/n11794615.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/GettyImages-1180494181-1-600x400-150x120.jpg" align ="left"></a>中美定于美东时间周三（15日）在白宫签署第一阶段贸易协议。14日，美国贸易代表莱特希泽（Robert Lighthizer）和财政部长姆钦（Steven Mnuchin）发表联合声明表示，美中双方并没有在第一阶段贸易协议同意进一步削减关税。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月15日 4:30 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/zsifxm298/djy/blob/master/gb/20/1/15/n11794324.md#1" target="_blank">【名家专栏】教师须慎重处理有争议的问题</a><br></h3><a href="https://github.com/zsifxm298/djy/blob/master/gb/20/1/15/n11794324.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/11/Fotolia_34649832_Subscription_L-150x120.jpg" align ="left"></a>上个月，一位大温哥华高中（Metro Vancouver high school）的老师据称给学生们看了一部Netflix的纪录片，名为《别惹猫咪：追捕虐猫者》（Don't f*** With Cats，又名：猫不可杀不可辱）。这部被评为“成年”限制级的纪录片，生动地描述了已被判有罪的杀人犯卢卡·玛格诺塔（Luka M.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月15日 4:00 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/zsifxm298/djy/blob/master/gb/20/1/15/n11794198.md#1" target="_blank">文武：国民党的前途与命运</a><br></h3><a href="https://github.com/zsifxm298/djy/blob/master/gb/20/1/15/n11794198.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/8c1da188900d6613a9afa5f4e3e5fb62-600x400-1-150x120.jpg" align ="left"></a>国民党这次在台湾大选中的失败对国民党来说不是坏事而是好事，因为从党派利益的角度上来说，与中国共产党有仇的不是台湾的民进党而是中国国民党，这次在台湾大选的过程中，各党派在竟选造势的主会场上，国民党是举满了中华民国的国旗，国民党的中华民国万岁的口号喊遍全场。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月15日 1:00 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/zsifxm298/djy/blob/master/gb/20/1/17/n11800044.md#1" target="_blank">伍新：无花言现花言形——小康年初哭吴花燕</a><br></h3>贵州穷女大三生，
-三七公斤三八龄。
-小康年刚苦熬到，
-吴花燕怎不再撑？
-说你是以死抗争，
-脱贫册上销你名。
-说你拥护党扶贫，
-你却上演死穷等。
-有人说你是个谜，
-无花言现花言形。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月17日 2:24 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/zsifxm298/djy/blob/master/gb/20/1/17/n11800010.md#1" target="_blank">陈达：马屁似拍颠覆声</a><br></h3>人民领袖刚加封，
-贵族气质又赞颂。
-高级黑搭低级哄，
-牢记初心耳旁风。
-资本家已能入党，
-奴隶主咋就不成？
-全球再添茶余乐，
-马屁疑拍颠覆声。
-不晓初心灭贵族？
-还是捧刀欲见红？......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月17日 2:12 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/zsifxm298/djy/blob/master/gb/20/1/15/n11793807.md#1" target="_blank">方能达：祝贺《大纪元时报》读者日增</a><br></h3><a href="https://github.com/zsifxm298/djy/blob/master/gb/20/1/15/n11793807.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/190401110808100615-600x400-150x120.jpg" align ="left"></a>残暴并且阴险，中共是个邪党，
+满口仁义道德，满腹男盗女娼，
+号称大公无私，实则装模作样，
+偏又装点门面，教育传授撒谎。
+蓄意蛊惑人心，宣传极度虚伪，
+特权滋生贪腐，官场集体犯罪。
+非但危害国内，且又遗患域外。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月15日 11:51 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/zsifxm298/djy/blob/master/gb/20/1/14/n11793721.md#1" target="_blank">传记《穿透阴霾的舞蹈》读后感</a><br></h3><a href="https://github.com/zsifxm298/djy/blob/master/gb/20/1/14/n11793721.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2014/01/140127061644100615-150x120.jpg" align ="left"></a>加籍华人张铁钧是中国第一流的舞蹈家和舞蹈教育家，加拿大皇家芭蕾舞学院唯一华裔舞蹈教授；但是她的传记，却由一位加拿大人，作家和制片人Agnes Bristow 执笔，这是我从未见过的。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月15日 8:08 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/zsifxm298/djy/blob/master/gb/20/1/16/n11798907.md#1" target="_blank">王赫：2019中共政局 赶制家法 内斗诡异</a><br></h3>2019，中共是火上烤的一年，被烤得神志不清、惊慌失措、奄奄一息，政局全面恶化：草木皆兵，“向左转”浊浪拍岸，社会控制极端化；当局左支右绌，进退失措，几近丧失决策能力；强化“党领导一切”，刀光剑影之间，内斗呈现新态势，已末路不远。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月17日 3:56 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/zsifxm298/djy/blob/master/gb/20/1/16/n11798400.md#1" target="_blank">中华民国台湾 ：民主进程看过来</a><br></h3>2020年元月11日，蔡英文连选连任，当选中华民国台湾第十五任总统。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月16日 10:44 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/zsifxm298/djy/blob/master/gb/20/1/16/n11797687.md#1" target="_blank">金浴凤：春之歌</a><br></h3>蟾害未完了，处处有虎啸；
