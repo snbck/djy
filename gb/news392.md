@@ -24,6 +24,7 @@
 <tr><td><h3><a href="https://github.com/aiaxj298/djy/blob/master/gb/20/1/17/n11799968.md#1" target="_blank">俞晓薇：韩国和大陆法轮功学员境遇两重天</a><br></h3><a href="https://github.com/aiaxj298/djy/blob/master/gb/20/1/17/n11799968.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/2020-1-15-korea-seoul-group-practice_03-150x120.jpg" align ="left"></a>为何在韩国，炼功人可以堂堂正正地进入市政府大楼，阅读修炼书籍，交流修炼体会？反观大陆，人们非但不能自由地实践信仰，反而因为做好人而被非法监禁............<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月17日 5:48 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/aiaxj298/djy/blob/master/gb/20/1/17/n11800085.md#1" target="_blank">陆言：共产党离灭亡的终点还有多远？</a><br></h3><a href="https://github.com/aiaxj298/djy/blob/master/gb/20/1/17/n11800085.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/07/1907210227441528-150x120.jpg" align ="left"></a>在中国有这样一句话，叫做“跟不正，苗不正，接的葫芦歪歪腚”。这句话很有道理。共产党为什么这么邪，我们追踪它的起源就可以找到答案。共产党是一百多年前法国巴黎公社的一伙社会流氓造反，靠打砸抢起家的这样一伙人，这些人可以说是共产党的老祖宗，它有这样一个邪根，它的子孙后代能是好东西吗？......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月17日 4:26 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/aiaxj298/djy/blob/master/gb/20/1/14/n11793721.md#1" target="_blank">传记《穿透阴霾的舞蹈》读后感</a><br></h3><a href="https://github.com/aiaxj298/djy/blob/master/gb/20/1/14/n11793721.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2010/03/1003031031131371-150x120.jpg" align ="left"></a>加籍华人张铁钧是中国第一流的舞蹈家和舞蹈教育家，加拿大皇家芭蕾舞学院唯一华裔舞蹈教授；但是她的传记，却由一位加拿大人，作家和制片人Agnes Bristow 执笔，这是我从未见过的。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月17日 3:47 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/aiaxj298/djy/blob/master/gb/20/1/19/n11805446.md#1" target="_blank">陈思敏：民政部“中福在线”的丑闻与骗局</a><br></h3>今年是习近平宣示“全民脱贫”的目标年，中国脱贫战就要进入收官阶段，但“中福在线”──中共民政部福彩中心热销的即开型电子视频彩票仍在害国害民，让全国不计其数的人致贫返贫。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月20日 12:58 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/aiaxj298/djy/blob/master/gb/20/1/19/n11805439.md#1" target="_blank">关乐： 党领导之一“切”</a><br></h3>休看病女贫，
 党当聚宝盆。
 救助吴花燕，
@@ -76,15 +77,5 @@
 你却上演死穷等。
 有人说你是个谜，
 无花言现花言形。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月17日 2:24 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/aiaxj298/djy/blob/master/gb/20/1/17/n11800010.md#1" target="_blank">陈达：马屁似拍颠覆声</a><br></h3>人民领袖刚加封，
-贵族气质又赞颂。
-高级黑搭低级哄，
-牢记初心耳旁风。
-资本家已能入党，
-奴隶主咋就不成？
-全球再添茶余乐，
-马屁疑拍颠覆声。
-不晓初心灭贵族？
-还是捧刀欲见红？......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月17日 2:12 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/aiaxj298/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/aiaxj298/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/aiaxj298/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/aiaxj298/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/aiaxj298/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/aiaxj298/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/aiaxj298/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/aiaxj298/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/aiaxj298/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/aiaxj298/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/aiaxj298/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/aiaxj298/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/aiaxj298/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aiaxj298/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
