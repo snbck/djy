@@ -24,8 +24,21 @@
 不少大陆朋友都告诉过我，中共的官方新闻不可靠，他们从小就知道央视新闻听听就好，必要时还得“反着看”；大部分中国人更愿意听.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月18日 9:52 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/mthry289/djy/blob/master/gb/20/1/17/n11801573.md#1" target="_blank">周晓辉：川普下紧箍咒 中南海解除只有一条路</a><br></h3><a href="https://github.com/mthry289/djy/blob/master/gb/20/1/17/n11801573.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/000_1NQ6KR-2-600x400-1-150x120.jpg" align ="left"></a>目前中南海签署第一阶段协议后，不想遭受灭顶之灾，惟有一条路是顺应天意和历史大势，遵守协议内容，推动经济政治改革，才可解除戴在头上的紧箍咒，也方有一线生机。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月18日 7:08 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/mthry289/djy/blob/master/gb/20/1/17/n11801506.md#1" target="_blank">颜丹：中国人何时不再当中共的人质？</a><br></h3><a href="https://github.com/mthry289/djy/blob/master/gb/20/1/17/n11801506.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/000_1NO30S_refine-600x400-1-150x120.jpg" align ="left"></a>当岁月不再静好，当中国人从麻醉中惊醒，中共因老百姓忍无可忍而被推翻倒台的那一刻，就会随即到来。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月18日 5:15 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/mthry289/djy/blob/master/gb/20/1/17/n11800656.md#1" target="_blank">陈思敏：京沪高铁不缺钱为何还要上市</a><br></h3><a href="https://github.com/mthry289/djy/blob/master/gb/20/1/17/n11800656.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2013/02/1201151145282519-150x120.jpg" align ="left"></a>1月16日，A 股开年IPO巨无霸、高铁第一股──京沪高铁在上海证交所主板正式挂牌上市。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月17日 7:43 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/mthry289/djy/blob/master/gb/20/1/17/n11799968.md#1" target="_blank">俞晓薇：韩国和大陆法轮功学员境遇两重天</a><br></h3><a href="https://github.com/mthry289/djy/blob/master/gb/20/1/17/n11799968.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/2020-1-15-korea-seoul-group-practice_03-150x120.jpg" align ="left"></a>为何在韩国，炼功人可以堂堂正正地进入市政府大楼，阅读修炼书籍，交流修炼体会？反观大陆，人们非但不能自由地实践信仰，反而因为做好人而被非法监禁............<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月17日 5:48 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/mthry289/djy/blob/master/gb/20/1/20/n11806623.md#1" target="_blank">郑纯清： 她真的死在小康梦里</a><br></h3>穷死病死苦死累死？
+都是又并非都全是。
+郭泉义士伸手助之，
+求得国外免费救治。
+未料吴花燕坚拒辞，
+死有把握慷慨陈词。
+怪惧影响国家形象，
+接受外援视若大逆。
+痴信国家救治能力，
+不晓背她募捐早启。
+原来她在梦里活着，
+温饱梦境当成希冀。
+可惜最终亦未醒过，
+真的死在小康梦里。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月20日 1:23 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/mthry289/djy/blob/master/gb/20/1/20/n11806284.md#1" target="_blank">吕锡民：核电成本分析</a><br></h3>在五大发电成本要素（资本、维运、燃料、外部、系统）分析之后，我们发现核电成本与其他发电形式具有竞争力，除非是在可以直接取得低成本化石燃料的地点。在核电厂总发电成本中，燃料成本仅占很小部分，尽管核电的资本成本高过煤电，以及远高于气电。但是，核电、煤电、气电等大型电厂的系统成本比间歇性再生能源低得多。尤其是核电充分提供长期.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月20日 1:10 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/mthry289/djy/blob/master/gb/20/1/19/n11805957.md#1" target="_blank">云鹤天：对联两则</a><br></h3>贸易战耍赖皮鼻青脸肿满地找牙
 台大选施阴招脸红脖粗搬石砸脚
 横批：天灭中共
