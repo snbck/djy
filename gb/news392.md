@@ -22,6 +22,14 @@
 <tr><td><h3><a href="https://github.com/rkkcu2059/djy/blob/master/gb/20/1/19/n11805446.md#1" target="_blank">陈思敏：民政部“中福在线”的丑闻与骗局</a><br></h3><a href="https://github.com/rkkcu2059/djy/blob/master/gb/20/1/19/n11805446.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/Screen-600x400-150x120.jpg" align ="left"></a>今年是习近平宣示“全民脱贫”的目标年，中国脱贫战就要进入收官阶段，但“中福在线”──中共民政部福彩中心热销的即开型电子视频彩票仍在害国害民，让全国不计其数的人致贫返贫。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月20日 12:58 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/rkkcu2059/djy/blob/master/gb/20/1/19/n11805438.md#1" target="_blank">袁斌：红三代露小宝与贫困女吴花燕的迥异人生</a><br></h3><a href="https://github.com/rkkcu2059/djy/blob/master/gb/20/1/19/n11805438.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/gugong-150x120.jpg" align ="left"></a>这几天，有两位上了热搜榜的年轻女子牢牢吸引了中国网民的眼球——一个是开着豪车进故宫并把照片嗮到微博上的红三代“露小宝LL”（真名高露，以下简称露小宝），另一个是因病离世的贵州贫困女生吴花燕......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月20日 12:26 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/rkkcu2059/djy/blob/master/gb/20/1/19/n11804572.md#1" target="_blank">程晓容：红三代车入故宫 大陆社会畸形无底线</a><br></h3><a href="https://github.com/rkkcu2059/djy/blob/master/gb/20/1/19/n11804572.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2020/01/851e9ea68d96f43e3450e6f7c72814b3-150x120.jpg" align ="left"></a>有人认为，“红三代”车入故宫成热门话题，或许是官方有意以此转移视线。其实，此事凸显中共体制的邪恶与败坏。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月19日 5:46 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/rkkcu2059/djy/blob/master/gb/20/1/22/n11812431.md#1" target="_blank">祝君安：中共就是邪教</a><br></h3>趁着混战魔入中，蒋日夹缝利渔翁
+学步俄暴灭传统，一片初心酝内讧
+
+民脂民膏养福威，网络支部控财币
+醉卧青楼匪阴笑，手握枪杆杀强非
+
+天堂盼望路漫漫，民众疾苦泪潸潸
+诛心洗脑五毛残，帮人数钱犹觉欢......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月22日 2:48 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rkkcu2059/djy/blob/master/gb/20/1/20/n11806338.md#1" target="_blank">王赫：“人民领袖”捧杀习近平？</a><br></h3>中共古语将“物极必反”。民间的说法是“爬得越高、摔得越惨”。岁末年初，对习的吹捧已经达到历史高点了，也就意味着习真的危险了。无论是对中共还是对习而言，2020年较之2019年，都必定更加动荡、凶险。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月21日 11:43 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/rkkcu2059/djy/blob/master/gb/20/1/20/n11808504.md#1" target="_blank">方能达：互相学习，取长补短</a><br></h3>中国古语“独学而无友则孤陋而寡闻”，即使是智慧敏锐学富五车的高人仍注重相互切磋弥补自己的不足。孔子问道于老子，不仅以德润身，而且不为尘俗所困。苏东坡从佛印禅师那里得到不少佛理的启示，既善于充分享受生活情趣，又能随遇而安不至于因灾厄而精神萎顿。诗道的精研者也是如此。中国文人以诗言志抒写感受，诗友之间相互唱和引出新意奇文.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月21日 8:28 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/rkkcu2059/djy/blob/master/gb/20/1/20/n11808064.md#1" target="_blank">蜀笑笑：论合法</a><br></h3>法的执行导致了秩序，然而，法并不是为了秩序而存在的。正如军队的存在导致（一定程度上）了和平，然而，军队并非为了和平而建立。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月21日 1:10 AM			</td></tr>
@@ -56,16 +64,5 @@
 刀切一口吞。
 锤造殃民祸，
 镰割捐韭林。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月19日 4:32 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/rkkcu2059/djy/blob/master/gb/20/1/19/n11804490.md#1" target="_blank">?吐为快：论土共的“贵族气质”</a><br></h3>贩卖国土签密件，大好河山弹指间
-弹丸小岛寸不让，爱国主义炒翻天
-
-官人东辞赵家楼，浩浩荡荡下西洲
-边吃边唱声飘空，当着国王自梳头
-
-党爱权力官爱财，后宫佳丽挨队排
-若非文工团里觅，则向殃视花丛采
-
-誓言永远不翻案，转送友妻进监看
-如要遗产不平反，找个妖蟾来接班......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月19日 4:21 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rkkcu2059/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/rkkcu2059/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/rkkcu2059/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/rkkcu2059/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/rkkcu2059/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/rkkcu2059/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/rkkcu2059/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/rkkcu2059/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/rkkcu2059/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/rkkcu2059/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/rkkcu2059/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/rkkcu2059/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/rkkcu2059/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rkkcu2059/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
