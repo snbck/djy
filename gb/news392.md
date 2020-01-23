@@ -25,7 +25,18 @@
 
 大陆官媒说，由于“赴台个人游签注到本月底期满失效，若不恢复，2月起大陆赴台的自由行旅客将开始‘归零’”。台湾红媒说，“2018年一名陆客在台平均日均消费211.68美元（约合人民币1457元）”、“每减少一名陆客，台湾就减少约451.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月21日 5:21 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/nchtm2512/djy/blob/master/gb/20/1/20/n11808421.md#1" target="_blank">袁斌：在中国“撒欢儿”的岂止是红三代露小宝</a><br></h3><a href="https://github.com/nchtm2512/djy/blob/master/gb/20/1/20/n11808421.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/gugong-550x400-1-150x120.jpg" align ="left"></a>几天了，“开豪车进故宫”事件仍在发酵。国人愤愤不平，议论纷纷。愤怒什么？议论什么？焦点不外乎当事人的“炫耀”和“特权”。今天我想把这事放在一个更大的背景里说说。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月21日 5:04 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/nchtm2512/djy/blob/master/gb/20/1/20/n11808420.md#1" target="_blank">夏小强：肺炎疫情快速扩散 中国民众需自救</a><br></h3><a href="https://github.com/nchtm2512/djy/blob/master/gb/20/1/20/n11808420.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/EOfsrUYVUAArpaj-150x120.jpg" align ="left"></a>对于广大民众而言，千万不能把希望和信任寄托到中共身上。中国民众需要自救。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月21日 4:32 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/nchtm2512/djy/blob/master/gb/20/1/23/n11815138.md#1" target="_blank">海网：中央维稳专家组专家夸完海口入病房感言</a><br></h3>武汉新肺炎，更比非典毒。
+中央专家组，蒙世装气粗。
+可防又可控，似乎数满腹。
+若说真有数，不晓病何出。
+要说没有数，明知病散布。
+一当党专家，维稳砖业户。
+职业道德无，撒谎算安抚。
+病毒不买账，应战肺潜入。
+王广发海口，余音绕梁柱。
+日夜过双五，病房占床铺。
+转眼被隔离，自证本无术？
+说来实堪悲.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月23日 1:20 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/nchtm2512/djy/blob/master/gb/20/1/22/n11813848.md#1" target="_blank">【网文】武汉市长必须回答的六个问题</a><br></h3>这几天，武汉新型冠状病毒性肺炎疫情引起举国关注，武汉市长周先旺也多次接受媒体采访答疑，但对大众最关心的问题，周先旺市长却一直避而不谈。作为一个一直关注武汉新型冠状病毒性肺炎疫情的中国公民，我在这里公开向周先旺市长提六个问题：......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月23日 1:29 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/nchtm2512/djy/blob/master/gb/20/1/22/n11812634.md#1" target="_blank">伍新：稳定压倒一切 大疫压得倒吗？</a><br></h3>稳定压倒一切尽凶险，大疫一到压倒从何谈？
 武汉疫情远远超想像，不然党会继续瞒瞒瞒。
