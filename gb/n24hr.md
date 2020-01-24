@@ -6,6 +6,7 @@
 据官方通报，截止24日上午，大陆确诊病例849例，死亡26例，湖北10地封城。
 
 截至24日12时，湖北省已宣布13个城市“封城”，分别为武汉、鄂州、黄冈、赤壁、枝江、仙桃、潜江、咸宁、黄石、恩施、荆门、当阳、孝感。.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月24日 1:40 PM	</td></tr>
+<tr><td><h3><a href="https://github.com/jvzcdz2791/djy/blob/master/gb/20/1/22/n11812777.md#1" target="_blank">地道专家袋熊意外成澳洲大火的救难英雄</a><br></h3><a href="https://github.com/jvzcdz2791/djy/blob/master/gb/20/1/22/n11812777.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/e642c54f3c7dd3dd90471c68c49614d2-150x120.jpg" align ="left"></a>日前有一帖文说，袋熊仁慈的让其他动物躲避到它的防火洞穴里，以躱避大火。帖文迅速爆红，一周内有28万个赞。不过经科学追踪，事实恐怕不完全如此。地道专家澳洲袋熊只是“意外”成了澳洲的“动物英雄”。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月24日 2:08 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/jvzcdz2791/djy/blob/master/gb/20/1/24/n11817569.md#1" target="_blank">武汉封城市民恐慌 网民：恐爆“辛亥革命”</a><br></h3><a href="https://github.com/jvzcdz2791/djy/blob/master/gb/20/1/24/n11817569.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/page-1-150x120.jpg" align ="left"></a>23日深夜武汉官方宣布于早上10时封城，武汉市民胆战心惊，仓皇逃离。但逃离的人忧心仍留在武汉的亲友。网民认为，由于中共隐瞒导致疫情不可收拾，武汉封城或导致“第二次辛亥革命”爆发，危及中共统治。
 异议作家仓皇出逃 忧心留在武汉的亲友
 《苹果日报》报导，曾在广东居住、屡遭政治打压被逐回武汉老家的异见作家黎学文看到封城消.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月24日 2:00 PM			</td></tr>
