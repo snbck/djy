@@ -24,7 +24,19 @@
 <tr><td><h3><a href="https://github.com/jtswrk284/djy/blob/master/gb/20/1/24/n11817947.md#1" target="_blank">苦胆：双重的贫病</a><br></h3><a href="https://github.com/jtswrk284/djy/blob/master/gb/20/1/24/n11817947.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/f2416e0c35c13c5bed63693a9d7fbc01-600x400-1-150x120.jpg" align ="left"></a>43斤的贵州女大学生吴花燕，在“全面建成小康社会”的2020年的1月13日走了，在既无花香也无燕喃的青春岁月走了。她的死，令人同情乃至痛惜，也教人深长思之。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月24日 4:16 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/jtswrk284/djy/blob/master/gb/20/1/24/n11817882.md#1" target="_blank">陆言：武汉封城意味着什么</a><br></h3><a href="https://github.com/jtswrk284/djy/blob/master/gb/20/1/24/n11817882.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/15ec605e94e53e9f_ttl7daytm4_tn0122_-150x120.png" align ="left"></a>武汉爆发“2019新型冠状病毒”（2019-nCoV）疫情消息逐渐与香港抗争的报导一样，成为世界新闻，而1月23日，武汉政府又突然宣布封城，更是举世震惊。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月24日 3:57 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/jtswrk284/djy/blob/master/gb/20/1/24/n11817672.md#1" target="_blank">袁斌：武汉当局为何错过了疫情的黄金防控期？</a><br></h3><a href="https://github.com/jtswrk284/djy/blob/master/gb/20/1/24/n11817672.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/Untitled-2-4-600x400-1-150x120.jpg" align ="left"></a>武汉封城后，财新记者采访了香港病毒学研究领域专家、香港大学新发传染性疾病国家重点实验室主任以及流感研究中心主任管轶，问他对封城怎么看。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月24日 1:16 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/jtswrk284/djy/blob/master/gb/20/1/24/n11817225.md#1" target="_blank">【名家专栏】民主党初选辩论有哪些医保主张</a><br></h3><a href="https://github.com/jtswrk284/djy/blob/master/gb/20/1/24/n11817225.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/GettyImages-1199551120-webcrop-1200x720-150x120.jpg" align ="left"></a>当民主党总统候选人聚集在爱荷华州进行第七场辩论时，伊朗问题和美国外交政策可能会成为中心话题。但是对于许多美国人来说，医疗保险问题仍然是最重要的、最有争论的话题。毫无疑问，今晚所有六位候选人都将会使用诸如“医保全面覆盖”（Universal coverage）、公共选项医保（Public option）、“全民医保”（M.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月24日 12:50 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/jtswrk284/djy/blob/master/gb/20/1/27/n11824660.md#1" target="_blank">吐为快：党与人民异忧乐</a><br></h3>窃国夺权匪阋墙，围困长春饿杀娘
+土改地主恨何怅，抢劫财妾喜煞党
+
+蒋在长城抗日艰，党躲延安种鸦片
+秀色进贡党魁魇，菜色忍着黎民奄
+
+三年人祸啃树皮，陌上行人多饿殍
+外援友邦鸡犬饱，宫里茅台醉妃笑
+
+六四志士血谏贪，九九妖蟾恶欺善
+权贵暴富移民急，学子穷病啃馒迟
+
+殃视欢笑“盛”世隆，武汉惶恐封城.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月27日 1:34 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/jtswrk284/djy/blob/master/gb/20/1/26/n11821946.md#1" target="_blank">祝君安：大疫当前，中国人应觉醒</a><br></h3>六四麻木沦物欲，物欲横流迷东西；
 妖共毒性却未改，剥夺信仰殖愚鄙；
 有难何曾党同担，封城保己无顾忌；
