@@ -21,8 +21,20 @@
 <tr><td><h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/25/n11821049.md#1" target="_blank">钟声：疫情中请牢记法轮大法好</a><br></h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/25/n11821049.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/2019-12-31-1912260817243641-150x120.jpg" align ="left"></a>中共讲战天斗地，但碰上天灾人祸却毫无办法，而法轮大法的九字吉言却能保您平安，此言真实不虚。如果遇到法轮功学员送给您护身符，请千万不要拒绝，也不要错过选择“三退”（退出中共党团队）的机会。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月26日 12:33 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/25/n11820349.md#1" target="_blank">程晓容：武汉疫情远超想像 中国人如何自救</a><br></h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/25/n11820349.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/GettyImages-1195464196-150x120.jpg" align ="left"></a>一位武汉医护人员对家人说，“千万不要相信政府，要靠自己。”与中共这个最疯狂的病毒一刀两断，来个光明磊落，乃上上策。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月25日 6:44 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/25/n11820297.md#1" target="_blank">张林：武汉瘟疫 天灭中共？</a><br></h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/25/n11820297.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/Capture-5-1-150x120.jpg" align ="left"></a>尽管12月8日，武汉就已经发现冠状病毒感染者。但是中共各级官员都不负责任，以致于疫情不断扩大，现在终于酿成滔天大祸。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月25日 4:25 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/25/n11820036.md#1" target="_blank">谭笑飞：不要让善良限制了你的想像力</a><br></h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/25/n11820036.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2018/07/Beijing-in-smog-630282210-for-Selling-760-and-BW-590-150x120.jpg" align ="left"></a>武汉肺炎出现以来，中共一直宣称“可防可控”。但是短短几天之内从漫不经心的不作为到突然对武汉市进行封锁并迅速扩展到湖北省十几个城市。一时间民情激愤，谴责之声不绝于耳。笔者在为清醒的民众感到高兴的同时也略有遗憾，因为有的谴责中依稀还有一点“恨铁不成钢”的影子，似乎中共本来可以做得好一些，或者希望中共未来可能做得好一些。对此.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月25日 3:16 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/25/n11819835.md#1" target="_blank">项云：自欺欺人的“当下最好，你不好是你自己的问题”</a><br></h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/25/n11819835.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2018/04/1804042215242378-150x120.jpg" align ="left"></a>中共授意网军即五毛、粉红之类，鼓噪“当下最好，你不好是你自己的问题”，其实是中共黔驴技穷无奈的新欺骗。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月25日 2:42 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/28/n11826746.md#1" target="_blank">关乐： 枪不敌病毒</a><br></h3>夺权保权靠钢枪，疫区封锁抢林墙。
+
+小小病毒不在意，森森红师有何妨？
+
+战天斗地红邪灵，终极目的人毁光。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月28日 11:07 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/27/n11826321.md#1" target="_blank">李春草：赵国的年滋味</a><br></h3>中央团拜会，武汉肺炎危
+殃视歌声飞，寒夜恶犬吠
+媒体头版位，总是党光辉
+拼凑万家宴，虚伪盛世味
+姗姗预防迟，匆匆封城诡
+居家忌拜年，出逃被堵回
+热时疑染肺，咳处虑瘟鬼
+医院人鼎沸，殡馆尸成堆
+医护身崩溃，病人心似灰......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月28日 10:54 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/28/n11826508.md#1" target="_blank">徐晓东：中国主观性新闻火遍全网 传播真相极困难</a><br></h3>自从2019年3月，反送中运动在香港爆发，世界各地都对此有着许多报导。但相比于各国媒体中立的转播新闻准则，中共的媒体却始终使用煽动性的文章洗脑大陆的人民，告诉大陆人民香港的运动是暴徒的运动，似乎中国的新闻工作者已经违背了传播真实事件，客观叙述新闻的基本职业道德。
 
 首先，众所周知，中国的新闻是不代表大部分中国人的新.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月28日 9:02 AM			</td></tr>
