@@ -28,8 +28,24 @@
 <tr><td><h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/27/n11824805.md#1" target="_blank">陈思敏：疫情“灯下黑” 湖北不止一个武汉</a><br></h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/27/n11824805.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/000_Par7554505-600x400-1-150x120.jpg" align ="left"></a>武汉肺炎疫情加速蔓延之际，在中国的社群平台上发现，宣传口丧事喜办之类的“武汉加油”、“武汉挺住”也开始增多，而一些热搜词则被迅速降温，尤其是“湖北不止一个武汉”话题，传递的信息清晰不过，武汉周边城市疫情危机被低估被忽视。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月27日 6:26 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/27/n11825155.md#1" target="_blank">【名家专栏】川普的就业数据将使他赢得连任</a><br></h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/27/n11825155.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/GettyImages-1195290331-1200x825-150x120.jpg" align ="left"></a>在民主党人疯狂地、亢奋地努力说服美国公众相信唐纳德·川普（特朗普）总统理应受到弹劾下台之际，美国的经济正继续取得显着的进步。在2019年，亚裔美国人、非裔美国人、西班牙裔美国人和女性的失业率都处于历史最低水平。这给民主党人提出了一个重要问题。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月27日 6:16 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/27/n11824696.md#1" target="_blank">袁斌：疫情肆虐 春晚犹唱“问我国家哪像染病”</a><br></h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/27/n11824696.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/1-21-600x400-1-150x120.jpg" align ="left"></a>今年大年三十，新型肺炎已在中国大陆迅速扩散，疫情万分危急，一日紧似一日，封城后的武汉更是一片惨状，各大医院人满为患，尸体被放到了走廊，医生忙得一刻停不下来，然而，北京城里装点中共门面的春晚却依旧在高调上演，两者的反差之大，简直就是一个天一个地。特别讽刺的是，一贯热捧中共的港星在春晚上特意献唱了一首《大侠霍元甲》，其中的.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月27日 4:52 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/27/n11824791.md#1" target="_blank">程晓容：疫情危险信号 美日俄韩法澳都撤侨</a><br></h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/27/n11824791.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/GettyImages-1201285263-150x120.jpg" align ="left"></a>多国政府从武汉撤侨，主要有三个原因：当地医疗资源不足，生活物品供应紧张，疫情发展难控。这表明，中共官方数据不可信，外国政府被迫出手救自己人。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月27日 3:19 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/27/n11824464.md#1" target="_blank">【名家专栏】资本主义对世界真的有害吗？</a><br></h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/27/n11824464.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2012/12/1212221856411973-150x120.jpg" align ="left"></a>根据哈佛大学政治学家弗朗西斯?福山（Francis Fukuyama）的观点，苏联的解体意味着一段历史的终结。福山在20世纪90年代主张，世界现代史应被定义为两种根本对立的制度——苏维埃共产主义和自由民主资本主义之间的斗争。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月27日 1:54 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/29/n11829448.md#1" target="_blank">金浴凤：妖共的“肺炎共同体”</a><br></h3>武汉飚肺炎，天涯共惊眩
+党携初心毒，要传世界遍
+世贸取经验，美国作重点
+华为打头阵，中兴作后援
+窃来黑科技，抢得欧美钱
+培养剧毒源，撒向市场前
+马列藏内核，和谐裹表面
+非典试牛刀，瘟疫正式现
+猪瘟肆猪年，肺疫虐鼠年
+城随传播封，人因病不见
+党忙开两会，团拜没时间......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月29日 4:16 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/29/n11829501.md#1" target="_blank">慧真：大难“三退”保平安 “九字”吉言是金方</a><br></h3>肺炎病毒肆虐狂 共产邪灵是毒王
+毒遍全国毒世界 谁信恶党必遭殃
+疫情封锁欺瞒骗 泄出实情关牢房
+最佳防控失时机 万家宴开仍照常
+百姓生死无人问 政府只为维稳忙
+病源传播皆不知 专家胡说能控防
+国外各地也遭难 国内各省却无恙......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月29日 4:10 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rfvbv298/djy/blob/master/gb/20/1/28/n11828394.md#1" target="_blank">夏林: “爱国病毒”和 “热核武级别瘟疫”</a><br></h3>今年的中国新年，好多人是在铺天盖地的关于武汉肺炎的消息中度过的，尤其是武汉人。
 
 俗称为武汉肺炎的瘟疫学名叫2019-nCoV新型冠状病毒感染肺炎。源发于武汉，不知是中共在武汉东湖的生化实验室走漏了一种生命力特强的秘密病毒，还是武汉人吃野生动物吃到了这种可以迅速繁殖的新病毒，总之从去年12月初开始蔓延，一直到现在.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月29日 4:23 AM			</td></tr>
