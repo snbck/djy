@@ -28,14 +28,7 @@
 
 从那时起，中共大开历史的倒车，方向盘急往左转，对内不断加码施与民众的高压，对外奉行战狼式外交到处渗透扩张，数年间民怨沸腾名声扫地，加速踏上死亡之旅。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月29日 2:22 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ejouj260/djy/blob/master/gb/20/1/29/n11828860.md#1" target="_blank">王友群：停止迫害法轮功 弃恶从善是正道</a><br></h3><a href="https://github.com/ejouj260/djy/blob/master/gb/20/1/29/n11828860.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/1907181541541973-150x120.jpg" align ="left"></a>2020年一开年，“武汉肺炎”在武汉市集中爆发，并蔓延全国。然而，国难当头，中共仍在迫害法轮功。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月29日 2:00 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/ejouj260/djy/blob/master/gb/20/1/30/n11833489.md#1" target="_blank">郑纯清：中共年关好难熬 熬过更难熬</a><br></h3>拜年忌惮面对面，肺炎话热门窗寒。
-城乡街巷空荡荡，影剧院闭游园关。
-庙观不见香火旺，飞机趴窝车船眠。
-医院人满医亦病，崛起最高火葬烟。
-朝鲜蒙古封边卡，撤侨卅八国封馆。
-红朝大年鬼域相，乌鸦过冬蚊翩翩。
-红朝庚子临鬼门，中共鼠年若寒蝉。
-七捂八捂捂不住，越捂越传越蒸怨。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月31日 4:45 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/ejouj260/djy/blob/master/gb/20/1/29/n11828809.md#1" target="_blank">【美股瞭望】如何正确解读武汉肺炎的冲击</a><br></h3><a href="https://github.com/ejouj260/djy/blob/master/gb/20/1/29/n11828809.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/GettyImages-1195290556-150x120.jpg" align ="left"></a>武汉肺炎疫情的扩散，已成了今春金融市场最大的隐忧，有人认为这是2020年最大的“黑天鹅”，悲观者甚至认为武汉冠状病毒会让金融市场从此一蹶不振，股市熊市随即到来。 然而，美股迄今的反映未必如此悲观。道指今年创下29,373点历史新高之后，受到武汉肺炎疫情爆发的影响，本周最低跌到28,440点，短短五个交易日下挫933点看.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月29日 10:28 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ejouj260/djy/blob/master/gb/20/1/30/n11833205.md#1" target="_blank">武汉肺炎病人家属控诉：政府太不要脸了</a><br></h3>12月8日发现传染病人，政府到一月头为了维稳还在掩盖，还在说没有人传人的证据，还不在公共场所采取强制措施，还不在媒体上预警，导致包括我父亲在内的大批人在公共场所感染。我父亲一月是在医院体检被感染的，协和医院当时已经有超级传播者，已经感染了14名医务人员，医院竟然不预警，不采取告知和提醒戴口罩的措施。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月31日 2:39 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ejouj260/djy/blob/master/gb/20/1/30/n11831522.md#1" target="_blank">理悟：致武汉同胞</a><br></h3>
 
