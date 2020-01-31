@@ -821,13 +821,6 @@ John Ahn.........<br><img align="bottom" src="https://www.epochtimes.com/assets/
 <tr><td><h3><a href="https://github.com/ejouj260/djy/blob/master/gb/20/1/29/n11828760.md#1" target="_blank">¹úÌ©Ï÷Îå³ÉÀ´ÍùÖÐ¸Ûº½°à Ãâ³ý¸ÄÇ©·ÑÓÃ</a><br></h3><a href="https://github.com/ejouj260/djy/blob/master/gb/20/1/29/n11828760.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/GettyImages-1196094965-150x120.jpg" align ="left"></a>ÒòÓ¦¸Û¸®¾ÍÐÂÐÍ¹Ú×´²¡¶¾ÍÆÐÐ½ô¼±¼¶±ðÓ¦±ä´ëÊ©£¬¹úÌ©º½¿Õ¼°¹úÌ©¸ÛÁúÐû²¼£¬ÓÉ1ÔÂ30ÈÕÆðÖÁ3ÔÂµ×£¬½«Öð²½Ï÷¼õÎå³ÉÀ´ÍùÖÐ¸ÛµÄº½°à¡£ 3ÔÂµ×Ç°»íÃâÖØÐÂ¶©Î»·ÑÓÃ¡£......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020Äê01ÔÂ29ÈÕ 9:43 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ejouj260/djy/blob/master/gb/20/1/28/n11828653.md#1" target="_blank">¡¾Ãû¼Ò×¨À¸¡¿×¨ÖÆÕþÈ¨±ÈÎäºº·ÎÑ×¸üÎ£ÏÕ</a><br></h3><a href="https://github.com/ejouj260/djy/blob/master/gb/20/1/28/n11828653.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/GettyImages-1201285261-1200x900-150x120.jpg" align ="left"></a>¸ù¾ÝÖÐ¹²µ±¾Ö½üÈÕ¸üÐÂµÄ¹Ù·½Í³¼ÆÊý¾Ý£¬1ÔÂ22ÈÕ¡¢24ÈÕºÍ25ÈÕµÄ¡°Îäºº·ÎÑ×¡±È·ÕïÈËÊý·Ö±ðÎª542¡¢830ºÍ1287£¬¶øËÀÍöÈËÊýÔò·Ö±ðÎª17¡¢26ºÍ41¡£ÓÐ³¬¹ý800ÈËÕýÔÚ½ÓÊÜ¹Û²ì»òÒÑ¾­±»È·ÕïÊÜµ½¹Ú×´²¡¶¾¸ÐÈ¾¡£¼´Ê¹¸ù¾Ý¹Ù·½Êý¾Ý£¬×îÐÂËÀÍöÈËÊýÒ²ÊÇÇ°Ò»ÌìµÄÁ½±¶¶à£¬¸ÐÈ¾ÈËÊýÊÇ´ËÇ°µÄÈý±¶¡£¶ø¹Ù·½¹«²¼µÄÕâÐ©Çé¿öÊÇÊÂÊµÂð£¿±±¾©µÄ¹Ù·½.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020Äê01ÔÂ29ÈÕ 9:41 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ejouj260/djy/blob/master/gb/20/1/29/n11828774.md#1" target="_blank">ÒÉËÆÎäºº·ÎÑ×²¡ÈËÖ±½Óµ¹µØ ÍâµØÒ²Â½Ðø³öÏÖ</a><br></h3><a href="https://github.com/ejouj260/djy/blob/master/gb/20/1/29/n11828774.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/333-150x120.jpg" align ="left"></a>¼ÌÖ®Ç°´ó¼ÍÔª±¨µÀÎäºº·ÎÑ×ÒßÇé£¬ÎäººÁ¬Ðø³öÏÖ²¡ÈËÍ»È»µ¹µØµÄÏÖÏóºó£¬ºóÐøÈÔ²»¶ÏÓÐÀàËÆ²ÒÁÒÒ»Ä»Ä»ÔÙÏÖ£¬ÓÐµÄÂòÍê²ËÕýÔÚ»Ø¼ÒµÄÂ·ÉÏ¾ÍÍ»È»µ¹µØ£¬²¢ÇÒÕâÀàÏÖÏóÒÑ¾­À©É¢µ½ÍâµØ¡£......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020Äê01ÔÂ29ÈÕ 9:35 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/ejouj260/djy/blob/master/gb/20/1/29/n11828794.md#1" target="_blank">Ô¤·À²¡¶¾´«È¾ ÄÏ¼Ó»ªÈË³öÃÅ´÷¿ÚÕÖ</a><br></h3><a href="https://github.com/ejouj260/djy/blob/master/gb/20/1/29/n11828794.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/IMG_20200128_114525-150x120.jpg" align ="left"></a>¡°2019ÐÂÐÍ¹Ú×´²¡¶¾¡±£¨2019-nCoV£¬¼´Îäºº·ÎÑ×£©Ôì³ÉµÄ¸ÐÈ¾ÈËÊý³ÖÐøÔö¼Ó£¬ÃÀ¹ú¹úÎñÔºÁìÊÂÊÂÎñ¾Ö1ÔÂ24ÈÕÒÑ½«ÖÐ¹úºþ±±Ê¡ÁÐÎªµÚËÄ¼¶ÂÃÓÎ¾¯Ê¾£º¡°ÇëÎðÇ°Íù¡±£»27ÈÕÁìÊÂ¾Ö½«¸°ÖÐ¹úµÄÂÃÓÎ¾¯Ê¾ÓÉµÚ¶þ¼¶µ÷ÉýÖÁµÚÈý¼¶£º¡°ÖØÐÂ¿¼ÂÇÊÇ·ñÇ°Íù¡±¡£
-
-
-
-
-
-ÄÏ¼Ó»ªÈËÒ²·×·××öÆð·ÀÒß£¬±ÜÃâ¡°²¡¶¾¡±Í¸¹ýÈË´«ÈË´«È¾¡£×¡ÔÚ°¢º±²¼.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020Äê01ÔÂ29ÈÕ 9:28 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ejouj260/djy/blob/master/gb/20/1/31/n11834488.md#1" target="_blank">ÉñÔÏÕ¹ÏÖ´«Í³¼ÛÖµ¹Û °ÍÎ÷»ªÈËÀÏ°å£ºÕðº³ÈËÐÄ</a><br></h3>2020Äê1ÔÂ30ÈÕÍí£¬ÉñÔÏ¹ú¼ÊÒÕÊõÍÅÔÚÄÏÃÀ×î´ó³ÇÊÐ°ÍÎ÷Ê¥±£ÂÞUnimed Hall¾çÔºµÄÑÝ³öÎüÒýÁËµ±µØ¸÷½çÈËÊ¿Ç°À´¹Û¿´¡£......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020Äê01ÔÂ31ÈÕ 2:29 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ejouj260/djy/blob/master/gb/20/1/31/n11834360.md#1" target="_blank">ÖÐ¹²ÒþÄäÒßÇé  ×¨¼ÒÓÇÎäºº·ÎÑ×¸üÑÏ¾þ</a><br></h3>Îäºº·ÎÑ×³ÖÐøÑÓÉÕ£¬Ä¿Ç°ÒÑÖªÂûÑÓ½«½ü20¹ú¡£Ì¨Íå²¡¶¾×¨¼Ò¡¢Ì¨´óÊÞÒ½Ñ§ÔºÃûÓþ½ÌÊÚÀµÐãËë±íÊ¾£¬ÖÐ¹²×î³õ¾ÍÒþÄäÒßÇé£¬ÈÃÎäºº·ÎÑ×ÕæÊµÒßÇé·Ç³£ÄÑ¹À¼Æ£¬°ÑÖÐ¹²¹Ù·½¹«²¼µÄÊý¾Ý³ËÒÔ20±¶¶¼Ëã±£ÊØ£¬¿ÖÅÂÒÑÓÐ³¬¹ý10ÍòÈË¸ÐÈ¾¡£ËûÈÏÎª£¬±±¾©¡¢Ìì½òµÈµØÒÑ·¢ÉúÉçÇø¸ÐÈ¾£¬ÖÐ¹²ÈôÔÙÒþÄäÒßÇé£¬¿ÖÀ©´óµ½³¬¹ý°ÙÍòÈË¸ÐÈ¾¡£......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020Äê01ÔÂ31ÈÕ 2:24 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ejouj260/djy/blob/master/gb/20/1/31/n11834504.md#1" target="_blank">2ÍòÃÀÔªÓÎÃñÓªÀ¬»øÇåÀí·Ñ¸ÃË­¸¶£¿</a><br></h3>¼ÓÖÝ¿¨Ë¹ÌØÂÞ¹È£¨Castro Valley£©µÄÒ»ÈºÉçÇø¾ÓÃñ£¬½üÈÕ¶ÔÓÚ×Ô¼º±»ÒªÇó·ÖÌ¯2ÍòÃÀÔªÓÎÃñÓª´óÅúÀ¬»øµÄÇåÀí·Ñ£¬¸Ðµ½·Ç³£²»Âú¡£
@@ -1092,5 +1085,4 @@ City News±¨µ¼ÁËÕâÑùÒ»¸ö¹ÊÊÂ¡£À´×ÔÓ¡¶ÈµÄ¼ÓÄÃ´óÐÂÒÆÃñÀ¼¼ª£¨Ranj£©Å®Ê¿ÕýÔÚÕÒ¹¤×÷¡£Ò
 ¿Î³ÌÏêÇéÈçÏÂ£º
 
 .........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020Äê01ÔÂ29ÈÕ 9:52 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/ejouj260/djy/blob/master/gb/20/1/29/n11828802.md#1" target="_blank">ÉîÛÚÍå¿Ú°¶·¢ÏÖ±¬Õ¨Æ·</a><br></h3>¾¯·½28ÈÕÉÏÎç11Ê±×óÓÒ½Ó±¨£¬ÔÚÉîÛÚÍå¿Ú°¶¹ÜÖÆÕ¾´óÂ¥ÄÐ²ÞÍâµÄÀ¬»øÍ°£¬·¢ÏÖ¿ÉÒÉÎïÆ·£¬»³ÒÉÊÇ±¬Õ¨Æ·¡£......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020Äê01ÔÂ29ÈÕ 9:30 AM			</td></tr>
 </table><h4>ÊÖ»úÉÏ³¤°´²¢¸´ÖÆÏÂÁÐÁ´½Ó»ò¶þÎ¬Âë·ÖÏí±¾ÎÄÕÂ£º</h4>https://github.com/ejouj260/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/ejouj260/djy/blob/master/gb/n24hr.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ejouj260/djy/blob/master/gb/n24hr.md%231" title="·ÖÏí±¾ÎÄÕÂ"></a><br>Ô­ÎÄµØÖ·£º <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    £¨¹úÄÚÐè<a href="https://git.io/JesJV">ÏÂÔØ·­Ç½Èí¼þ</a>²ÅÄÜ·ÃÎÊ£©</p>
