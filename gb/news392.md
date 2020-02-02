@@ -22,9 +22,17 @@
 <tr><td><h3><a href="https://github.com/gczsa203/djy/blob/master/gb/20/1/31/n11834783.md#1" target="_blank">陈思敏：疫情不止高层不和 武汉肺炎背后猫腻多</a><br></h3><a href="https://github.com/gczsa203/djy/blob/master/gb/20/1/31/n11834783.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/333-600x400-3-150x120.jpg" align ="left"></a>从28日到30日，最高法、中纪委以及李克强任一把手的疫情工作领导小组，甚至刘鹤分管的科技系统，纷对疫情发声；而时间线表明，这些都是在武汉当局“公然甩锅”之后。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月31日 6:35 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/gczsa203/djy/blob/master/gb/20/1/31/n11834627.md#1" target="_blank">程晓容：世卫改口重新定性武汉肺炎 说明什么</a><br></h3><a href="https://github.com/gczsa203/djy/blob/master/gb/20/1/31/n11834627.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/GettyImages-1195128176-600x400-1-150x120.jpg" align ="left"></a>人命关天之际，中共居然几次阻挡卫生组织发出重大警报，置全球民众安危于不顾，其残忍和冷血超出想像，这才是突破道德底线、丧尽天良。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月31日 4:29 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/gczsa203/djy/blob/master/gb/20/1/31/n11834601.md#1" target="_blank">金言：地方围城防疫情失控 中央维稳防政权失控</a><br></h3><a href="https://github.com/gczsa203/djy/blob/master/gb/20/1/31/n11834601.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/15eee1726b600fbd_ttl7dayAqf_tn0130_-600x400-1-150x120.jpg" align ="left"></a>1月28日，中共公安部紧急叫停封村封路。公安部部长赵克志明确提出：对未经批准擅自设卡拦截、断路阻断交通等违法行为，要立即报告党委、政府，依法稳妥处置，维护正常交通秩序。同时，要打击各类借机造谣滋事、恶意污蔑攻击的不法行为，坚决防止公共卫生风险向社会稳定领域传导，坚决维护国家政治安全。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月31日 3:34 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/gczsa203/djy/blob/master/gb/20/1/31/n11834508.md#1" target="_blank">袁斌：散布谣言的不是8医生 而是武汉警方</a><br></h3><a href="https://github.com/gczsa203/djy/blob/master/gb/20/1/31/n11834508.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/10-16-150x120.jpg" align ="left"></a>今年第一天，武汉警方在其官方微博发布了一条题为《8名散布谣言者被依法查处》的通报，称：“近期，我市部分医疗机构发现接诊了多例肺炎病例，市卫健委就此发布了情况通报。但一些网民在不经核实的情况下，在网络上发布、转发不实信息，造成不良社会影响。公安机关经调查核实，已传唤8名违法人员，并依法进行了处理。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月31日 2:37 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/gczsa203/djy/blob/master/gb/20/1/31/n11834359.md#1" target="_blank">王友群：美国总统等谈帮中国抗“武汉肺炎”</a><br></h3><a href="https://github.com/gczsa203/djy/blob/master/gb/20/1/31/n11834359.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/000_1OI7SC-600x400-1-150x120.jpg" align ="left"></a>“武汉肺炎”蔓延全中国，成为当前中国民众最关心的头等大事。
-放眼全世界，最关心“武汉肺炎”的国外领导人，要数美国总统川普等美国最高层官员了。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月31日 2:09 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/gczsa203/djy/blob/master/gb/20/2/2/n11838200.md#1" target="_blank">伍新：“党员上一线”视频火爆最为党乐见</a><br></h3>视频党员上一线，风风火火网广传。
+不过畅销颇蹊跷，墙内热党最乐见。
+无论自发或导演，有意无意均哄宣。
+给人意象恍惚似，好歹一线上党员。
+其实正因看不着，大家一瞅才稀罕。
+靠恶作剧造幻觉，潜移默化催梦幻。
+末日恶党招尤损，损招亦玩不意间。
+人人痛恨共产党，众觉痛快情自然。
+但可知党多狡诈，也用人恨把人骗.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月02日 11:44 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/gczsa203/djy/blob/master/gb/20/2/2/n11838102.md#1" target="_blank">李春草：不能让妖共再逍遥</a><br></h3>几番人祸谎遮挡，魔扮天使欺善良
+小人顺逆助恶浪，邪党脱难焰更张......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月02日 11:22 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/gczsa203/djy/blob/master/gb/20/2/2/n11838083.md#1" target="_blank">理悟：快逃(歌词)</a><br></h3>危难到来赶快逃，
 冠状瘟疫追命讨。
 无影无踪抓不住，
