@@ -25,7 +25,15 @@
 <tr><td><h3><a href="https://github.com/cnubuw2345/djy/blob/master/gb/20/1/31/n11835872.md#1" target="_blank">张菁：逃出了武汉，武汉人就安全了吗？</a><br></h3><a href="https://github.com/cnubuw2345/djy/blob/master/gb/20/1/31/n11835872.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/WhatsApp-Image-2020-01-29-at-14.04.21-300x503-300x400-1-150x120.jpeg" align ="left"></a>每一个善念尚存的中国人都应该明白，抛弃中共，回归传统，恪守道德，才能使这种普世价值观重回神州大地，才能躲过瘟疫之灾。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月01日 4:23 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/cnubuw2345/djy/blob/master/gb/20/1/31/n11835665.md#1" target="_blank">夏小强：中共失控 中国各地出现自组织状态征兆</a><br></h3><a href="https://github.com/cnubuw2345/djy/blob/master/gb/20/1/31/n11835665.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/Wuhan-Wuhan-Hospital-150x120.jpg" align ="left"></a>中共公安部的指令，释放出中共中央政府，正在失去对中国地方政府和中国社会的控制。这一点，还有多个迹象和信息。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月01日 2:39 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/cnubuw2345/djy/blob/master/gb/20/1/31/n11835631.md#1" target="_blank">洪微：习近平“纠正”武汉市长 透露了什么</a><br></h3><a href="https://github.com/cnubuw2345/djy/blob/master/gb/20/1/31/n11835631.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/630290944-600x400-150x120.jpg" align ="left"></a>1月27日，武汉市长周先旺“主动”接受党媒央视采访，他称“作为地方政府，我获得这个信息以后，授权以后，我才能披露，所以这一点在当时很多人不理解。”他还说，“元月20日，国务院召开常务会议……要求属地负责，从这之后，我们认为我们的工作就主动多了。”......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月01日 1:38 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/cnubuw2345/djy/blob/master/gb/20/1/31/n11834558.md#1" target="_blank">惠虎宇：一个简单模型估算武汉肺炎的实际死亡人数</a><br></h3><a href="https://github.com/cnubuw2345/djy/blob/master/gb/20/1/31/n11834558.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/222-150x120.jpg" align ="left"></a>武汉肺炎在全球爆发，武汉肺炎传染性高于萨斯，致死率高，目前已经在这种病毒的爆发地中国武汉造成大量死亡。据社交媒体流传出的文件显示，武汉当地的殡仪馆目前已经24小时不停的运作。一名知情人1月29日在推特发帖说：“武汉市市内各大殡仪馆火葬场目前24小时工作，我100%肯定，而之前都是半天开炉子！就算特殊情况也只是全天班！反.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月31日 7:05 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/cnubuw2345/djy/blob/master/gb/20/2/2/n11838771.md#1" target="_blank">陈达：隐瞒大疫情如同大暗杀</a><br></h3>武汉肺炎初始发，八医宣告被喝茶。
+
+公布笼统称网民，医生身份瞒天下。
+
+警察维稳犹不足，舆论暴力再高压。
+
+天经地义成罪过，逆天害命逞强霸。
+
+疫情越瞒越厉害，党妈微笑复变卦①。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月02日 5:21 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/cnubuw2345/djy/blob/master/gb/20/2/2/n11838200.md#1" target="_blank">伍新：“党员上一线”视频火爆最为党乐见</a><br></h3>视频党员上一线，风风火火网广传。
 不过畅销颇蹊跷，墙内热党最乐见。
 无论自发或导演，有意无意均哄宣。
