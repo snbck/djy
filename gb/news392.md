@@ -25,7 +25,14 @@
 <tr><td><h3><a href="https://github.com/gczsa203/djy/blob/master/gb/20/1/31/n11834508.md#1" target="_blank">袁斌：散布谣言的不是8医生 而是武汉警方</a><br></h3><a href="https://github.com/gczsa203/djy/blob/master/gb/20/1/31/n11834508.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/10-16-150x120.jpg" align ="left"></a>今年第一天，武汉警方在其官方微博发布了一条题为《8名散布谣言者被依法查处》的通报，称：“近期，我市部分医疗机构发现接诊了多例肺炎病例，市卫健委就此发布了情况通报。但一些网民在不经核实的情况下，在网络上发布、转发不实信息，造成不良社会影响。公安机关经调查核实，已传唤8名违法人员，并依法进行了处理。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月31日 2:37 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/gczsa203/djy/blob/master/gb/20/1/31/n11834359.md#1" target="_blank">王友群：美国总统等谈帮中国抗“武汉肺炎”</a><br></h3><a href="https://github.com/gczsa203/djy/blob/master/gb/20/1/31/n11834359.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/000_1OI7SC-600x400-1-150x120.jpg" align ="left"></a>“武汉肺炎”蔓延全中国，成为当前中国民众最关心的头等大事。
 放眼全世界，最关心“武汉肺炎”的国外领导人，要数美国总统川普等美国最高层官员了。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月31日 2:09 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/gczsa203/djy/blob/master/gb/20/1/31/n11833934.md#1" target="_blank">【名家专栏】科比的死提醒我们生命的意义</a><br></h3><a href="https://github.com/gczsa203/djy/blob/master/gb/20/1/31/n11833934.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/GettyImages-914624594-crop-1200x720-150x120.jpg" align ="left"></a>据多家媒体在周日（1月26日）报道，现年41岁的科比?布莱恩特（Kobe Bryant）和他13岁的女儿吉安娜（Gianna）在加利福尼亚州的卡拉巴萨斯（Calabasas）的坠机中身亡。科比?布莱恩特是洛杉矶湖人队（LA Lakers）的前球员，也是五次NBA总冠军得主，也是一位丈夫和四个孩子的父亲。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年01月31日 11:31 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/gczsa203/djy/blob/master/gb/20/2/2/n11838083.md#1" target="_blank">理悟：快逃(歌词)</a><br></h3>危难到来赶快逃，
+冠状瘟疫追命讨。
+无影无踪抓不住，
+无孔不入空中飘。
+中共无德惹横祸，
+坏事做绝天不饶。
+中原百姓水火中，
+党妈惶惶没真招。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月02日 10:14 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/gczsa203/djy/blob/master/gb/20/2/2/n11838069.md#1" target="_blank">千瑞：中国人，谁能拯救你？</a><br></h3>中国人，谁能拯救你？
 武汉，深陷在恐惧挣扎煎熬里。
 你可看清，你的命在中共眼中，
