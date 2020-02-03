@@ -28,7 +28,6 @@
 战争所用武器：人体；
 战争伤亡人数：你猜。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月02日 2:29 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/myosy299/djy/blob/master/gb/20/2/1/n11837843.md#1" target="_blank">王友群：中共是我们这个时代的主要威胁</a><br></h3><a href="https://github.com/myosy299/djy/blob/master/gb/20/2/1/n11837843.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/000_1OG8SF-600x400-150x120.jpg" align ="left"></a>1月30日，美国国务卿蓬佩奥会见英国首相约翰逊时说：“中共是我们这个时代的主要威胁”。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月02日 1:20 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/myosy299/djy/blob/master/gb/20/2/3/n11842093.md#1" target="_blank">俞元：从香港到武汉，跨年戴口罩战“中共瘟妖”</a><br></h3>2019港人反“送终猪瘟”、逃脱中共专制魔爪的黑口罩还没摘掉，2020全中国人又戴起了防鼠年瘟疫的蓝白口罩。当疫情真相曝光后，众多网民发现，冠状病毒再毒，也毒不过中国共产党！中共是人祸天灾的始作俑者、推波助澜者，是真正祸害人类的瘟妖！......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月04日 1:57 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/myosy299/djy/blob/master/gb/20/2/3/n11841990.md#1" target="_blank">夏林: 武汉肺炎  “最美逆行”者的悲哀</a><br></h3>在武汉肺炎肆虐的日子里，中共的党文化里出现了一个新词汇：最美逆行，中共喉舌《人民日报》说这个词最近挺火的，它指的是外地一批医护人员在“党”的号召下，别了老父、别了未婚妻、别了孩子，“逆行”到武汉肺炎瘟疫区，豪情壮志，要与这不明病毒决一死战，故造“最美逆行”歌颂之。
 
 按说 “一方有难，八方来援”是为人之道，连万里之.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月03日 11:47 PM			</td></tr>
@@ -125,5 +124,13 @@
 但可知党多狡诈，也用人恨把人骗.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月02日 11:44 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/myosy299/djy/blob/master/gb/20/2/2/n11838102.md#1" target="_blank">李春草：不能让妖共再逍遥</a><br></h3>几番人祸谎遮挡，魔扮天使欺善良
 小人顺逆助恶浪，邪党脱难焰更张......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月02日 11:22 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/myosy299/djy/blob/master/gb/20/2/2/n11838083.md#1" target="_blank">理悟：快逃(歌词)</a><br></h3>危难到来赶快逃，
+冠状瘟疫追命讨。
+无影无踪抓不住，
+无孔不入空中飘。
+中共无德惹横祸，
+坏事做绝天不饶。
+中原百姓水火中，
+党妈惶惶没真招。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月02日 10:14 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/myosy299/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/myosy299/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/myosy299/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/myosy299/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/myosy299/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/myosy299/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/myosy299/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/myosy299/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/myosy299/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/myosy299/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/myosy299/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/myosy299/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/myosy299/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/myosy299/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
